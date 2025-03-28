@@ -2,6 +2,8 @@
 
 ## By George de Roerich.
 
+### New York, 1925.
+
 ---
 
 ---
