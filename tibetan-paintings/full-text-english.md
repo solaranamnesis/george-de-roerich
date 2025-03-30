@@ -6,9 +6,9 @@
 
 ---
 
-# [Introduction.]()
+# [Introduction.](#introduction-1)
 
-# [Buddhas.]()
+# [Buddhas.](#buddhas-1)
 
 ...
 
