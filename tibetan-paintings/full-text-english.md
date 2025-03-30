@@ -214,4 +214,83 @@ The Buddhist iconography knows several kinds of postures or āsanas in which the
 
 In one of these postures we see the divinity sitting cross-legged in the Hindu fashion. It is the posture of a Buddha, and several names are used to designate it, according to the kind of throne on which the divinity is seated: padmāsana, the lotus throne, vajrāsana, the diamond throne, and simhāsana, the lion throne.
 
+Another posture, which is said to be particularily common among Bodhisattvas, is the mahārāja-līla posture. When represented in this posture, the divinity is seated on a throne, its right foot hanging down. Sometimes the divinities are seated in a European fashion. This last posture is said to be characteristic of the Bodhisattva Maitreya and symbolizes the fact that the Bodhisattva is ready to descend from his throne, and has already lowered his feet in order to appear in the world. Such is the explanation of this posture given by lamas.
+
+Other characteristics that help to distinguish different deities, are the so-called mudrās (Tib. phyag-rgya), signs or manual gestures:--- it is the manner in which the hand and fingers are held during the performance of certain religious rites and ceremonies. The number of such mudrās or signs is very great; we enumerate here only the most common:
+
+1\. Dharmacakra-mudrā, the mudrā of preaching or instruction. The hands are joined in front of the chest, the index and thumb of the right hand holding one of the fingers of the left hand.
+
+2\. Vitarka-mudrā, the mudrā of argumentation. The right hand is raised, the thumb and the index joined.
+
+3\. Abhaya-mudrā, the mudrā of fearlessness. The right hand is raised, the palm of the hand is turned outwards, the fingers are joined together.
+
+4\. Vara-mudrā, the mudrā of charity. The right hand is lowered, the palm turned outwards, as if giving something.
+
+5\. Dhyāna-mudrā, the mudrā of meditation. The two hands are joined on the lap.
+
+6\. Bhūmi-sparśa-mudrā, the mudrā of touching the earth. The right hand touches the ground as if attesting a determination. The Buddha is said to have made this sign attesting his will to become a Buddha, and calling earth in testimony, during the night he spent under the Bodhi-tree.
+
+Besides these āsanas and mudrās, there are a number of attributes which serve to distinguish the various forms of divinities. With the advent of Śivaistic cults the number of such attributes greally increased. We mention here below only the most common:
+
+| _Sanskrit._ | _Tibetan._   | _Transl._          |
+|-----------|------------|------------------|
+| padma.    | padma.     | the pink lotus.  |
+| utpala.   | utpala.    | the blue lotus.  |
+| akṣamālā. | 'pheṅ-ba.  | the rosary.      |
+| pustaka.  | glegs-bam. | the book.        |
+| vajra.    | rdo-rje.   | the thunderbolt. |
+
+The vajra or thunderbolt is an ancient indo-iranian symbol, the club of Indra. A thunderbolt from Persia is said to be preserved in the monastery of Se-ra, founded in 1417 CE by Byams-čhen čhos-rje.
+
+A quadruple form of the thunderbolt is frequently met on images (Skrt. viśvavajra; Tib. sNa-tshogs rdo-rje).*
+
+|            |             |                          |
+|------------|-------------|--------------------------|
+| khaḍga.    | ral-gri.    | the sword.               |
+| daṇḍa.     | ber-ka.     | the stick.               |
+| cāpa.      | gšu.        | the bow.                 |
+| cakra.     | 'khor-lo.   | the wheel.               |
+| aṅkuśa.    | lčags-kyu.  | the hook.                |
+| paraśu.    | dgra-sta.   | the axe, the battle axe. |
+| kuṭhārikā. | sta-re.     | a hatchet.               |
+| śara.      | mda.        | the arrow.               |
+| tomara.    | mda-bo čhe. | a kind of large arrow.   |
+| śakti.     | mduṅ-thuṅ.  | an iron spear.           |
+| pāśa.      | šags-pa.    | the lasso.               |
+
+*) Skrt. Vajra = pers. gorz. Cf. P. Horn, Grundriss der Neupersischen Etymologie, Strassburg, 1893, p. 200. The vajra in the Indo-european antiquity, see S. Feist, Kultur, Ausbreitung und Herkunft der Indogermanen. Berlin, 1913, p. 218.
+
+| _Sanskrit._ | _Tibetan._ | _Transl._          |
+|-------------|------------|--------------------|
+| musala.     | dbyug-gu.  | the club.          |
+| triśūla.    | rtse-gsum. | the trident.       |
+| khaṭvāṅga.  | khaṭvāṅga. | the magic sceptre. |
+
+The khaṭvāṅga is a kind of magical sceptre, said to have been invented by Padmasambhava. The sceptre is sometimes crowned with a trident, or a vajra.
+
+|               |               |              |
+|---------------|---------------|--------------|
+| chatra.       | gdugs.        | the parasol. |
+| dhvaja.       | rgyal-mtshan. | the banner.  |
+| maśakavāraṇa. | 'braṅ-yab.    | a fly slap.  |
+| kartrī.       | gri-gug.      | the knife.   |
+
+This knife has the peculiar shape of a hook. Its handle is made of a vajra; it is a weapon of Tantric deities.
+
+|            |                    |                                |
+|------------|--------------------|--------------------------------|
+| patra.     | lhuṅ-bzed.         | the alms bowl.                 |
+| kamaṇḍalu. | tshe-bum.          | the vessel.                    |
+| śaṅkha.    | duṅ or duṅ-dkar.   | the conch.                     |
+| maṇi.      | nor-bu rin-po-čhe. | the jewel.                     |
+| ḍamaru.    | čaṅ-te.            | the drum.                      |
+| ghaṇṭā.    | dril-bu.           | the bell.                      |
+| kapāla.    | thod-pa.           | the cup made of a human skull. |
+
+Such is the arsenal of attributes with which the pious devotion of worshippers has armed the different deities. Different Tantric schools introduced a number of other attributes, as yet difficult to distinguish. The symbolism of the Tantras is almost unknown and it is only with great difficulty that we are able to find our way through the multitude of symbols. Let us hope that the day will come when the mass of Tantric literature will be translated and commented.
+
+When this work is accomplished, we shall get a clearer insight into the obscure terminology of various systems of meditations and conjurations, which are often represented on paintings in Tibet.
+
+We have arranged the paintings of this collection according to the native Tibetan classification of divinities, which will be easily understood from the following table.
+
 ...
