@@ -6,6 +6,12 @@
 
 ---
 
+# [Introduction.]()
+
+# [Buddhas.]()
+
+...
+
 ---
 
 # Introduction.
@@ -292,5 +298,39 @@ Such is the arsenal of attributes with which the pious devotion of worshippers h
 When this work is accomplished, we shall get a clearer insight into the obscure terminology of various systems of meditations and conjurations, which are often represented on paintings in Tibet.
 
 We have arranged the paintings of this collection according to the native Tibetan classification of divinities, which will be easily understood from the following table.
+
+The Three Gems (Skrt. Triratna; Tib. dKon-mčhog gsum), the highest objects of Buddhist worship, are considered to be the symbol of the whole pantheon of Northern Buddhism. To each Gem correspond two classes of divine beings*:
+
+1\. Buddharatna. (Saṅs-rgyas dkon-mčhog)
+
+a\. The gem of the sublime Buddhas: Buddhas manifested in the three aspects (Skrt. trikāya), and all the benign and fearful yi-dams.
+
+b\. The gem of the manifested Buddhas: Pratyekabuddhas.
+
+2\. Dharmaratna. (Čhos dkon-mčhog)
+
+a\. The gem of the sublime Law: Buddhas, Bodhisattvas, and arhats.
+
+b\. The gem of the manifested Law: the teaching expounded in holy scriptures.
+
+3\. Samgharatna. (dGe-'dün dkon-mčhog)
+
+a\. The gem of the sublime Samgha: the sixteen great arhats, Śāriputra, Maudgalyāyana, Śrāvakas, the eight sons of the Buddha, Bodhisattvas, religious protectors, goddesses and ḍākiṇis.
+
+b\. The gem of the manifested Samgha: the congregation of bhikṣus or monks.
+
+*) A somewhat similar classification of divine beings is found in the Gāṇakāraṇḍa-vyn̄ha. Rāj. Mitra, Skrt. Buddh. Literature in Nepal, p. 96.
+
+We shall begin our detailed description of paintings with the representations of Buddhas, Dhyāni-Buddhas and Yi-dams. Then we shall pass over to the Bodhisattvas, the spiritual sons of Dhyāni-Buddhas, to the different aspects of the divine Tārā, and to a number of paintings representing the Great Reformer rGyal-ba Tsoṅ-kha-pa, the teacher Padmasambhava, etc.
+
+Most of the paintings in this collection are old: a few modern ones were included in order to show the tenacity of Tibetan artistic tradition.
+
+I take this opportunity to express my thanks for many valuable suggestions to my teacher and friend Lama Lobzang Mingyur, Head Lama of the Darjeeling High School. I have also profitted by the advice of the Abbot of the Tashiding Monastery, Sikhim, and of Byams-pa bKra-śis (čam-pa Tachi), the monk-iconographer of the Tashilhunpo Monastery, near Shigatse. My grateful thanks are due to my teacher Professor Paul Pelliot, who very kindly went over the proofs, and gave me his valuable advice and support. I also express my gratiture to my friends Mr. George G. Chklaver and Mr. V. V. Dixon for help in various technical matters during my absence in India.
+
+Darjeeling, 1924.
+
+---
+
+# Buddhas.
 
 ...
