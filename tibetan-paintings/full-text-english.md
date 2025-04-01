@@ -359,4 +359,18 @@ Let us turn now to the detailed study of the paintings. On the banner Nr. 1 (204
 
 *) In his left hand he is holding the bowl (Skrt. patra) The left hand makes the sign of "attestation."
 
+The following scheme will facilitate the description. The numbers on it do not correspond to those of the Tibetan list of Arhats. We shall mention every time the place of the Arhat in the Tibetan list:
+
+1\. The Arhat Aṅgaja (Tib. Yan-lag-' byuṅ). The Elder dwells on Mount Ti-se (Kailāsa). His attribute are a fan and incense-burner. He is the first of the Tibetan list.
+
+2\. Bakula (Tib. Ba-ku-la). The Elder dwells in Uttarakuru, the northern region. (This attribute is a rat vomitting a jewel. He is the ninth of the Tibetan list. (This attribute is a sufficient proof that Bakula is an alteration of Nakula, given by the Chinese lists. Nakula means in sanskrit "ichneumon," and also "purse," because purses were made with the skin of the animal. --- P. Pelliot).
+
+3\. Vajrīputra (Tib. rDo-rje mo'i bu). He dwells in Ceylan (Simbhaladvīpa). He is holding the fan in his left hand; the right hand is raised. He is the fifth of the Tibetan list.
+
+4\. Badhra (Tib. Bzaṅ-po). The Elder dwells in Yamunādvīpa. His attribute is usually a book; on our painting he is seen in meditation. He is the sixth of the Tibetan list.
+
+5\. Kanakabharadvāja (Tib. Bha-ra-dva-dsa gser-čan). He dwells in Aparagodānī. He is seen in meditation. He is the eighth of the Tibetan list.
+
+6\. Rāhula (Tib. sGra-gčan 'dsin). He dwells in Priyaṅgudvīpa. His attribute is a crown. He is the tenth of the Tibetan list.
+
 ...
