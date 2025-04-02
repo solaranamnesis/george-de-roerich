@@ -10,7 +10,7 @@
 
 # [Buddhas.](#buddhas-1)
 
-# [Dhyāni-Buddhas.]()
+# [Dhyāni-Buddhas.](#dhyāni-buddhas-1)
 
 ...
 
