@@ -2,7 +2,9 @@
 
 ## By George de Roerich.
 
-### New York, 1925.
+### Librairie orientaliste, Paul Geuthner.
+
+## 13, Rue Jacob --- Paris (6e). 1925.
 
 ---
 
