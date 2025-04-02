@@ -14,6 +14,8 @@
 
 # [Dhyāni-Buddhas.](#dhyāni-buddhas-1)
 
+# [Tutelary Deities.]()
+
 ...
 
 ---
@@ -428,5 +430,58 @@ On the lower part of the painting are seen Kuvera, the god of riches, riding a w
 # Dhyāni-Buddhas.
 
 (Tib. rGyal-ba rigs-lṅa)
+
+Mahāyāna Buddhism knows five meditative or celestial Buddhas. They are eternally dwelling in contemplation and never were Bodhisattvas. They correspond to the five elements (Skrt. skandha) and to the five senses. Each of these transcendental Buddhas reigns over a cosmic period and manifests himself to the saints plunged in deep meditation. To each of the five meditative Buddhas correspond a "human Buddha" (Skrt. mānuṣibuddha) and a bodhisattva. The last one is called a dhyāni-bodhisattva and is considered to be the spiritual son of the meditative Buddha.* Each of the Dhyāni-Buddhas has his own color, mūdrā, situation, and vehicle. The following table will be found useful:
+
+|                 | Human Buddhas (Mānuṣibuddhas) | Meditative Buddhas (Dhyāni-Buddhas) | Meditative Bodhisattvas (Dhyāni-Bodhisattvas) |
+|-----------------|-------------------------------|-------------------------------------|-----------------------------------------------|
+| Sanskrit names: |                               |                                     |                                               |
+| 1.              | Krakucchanda.                 | Vairocana.                          | Samantabhadra.                                |
+| 2.              | Kanakamuni.                   | Akṣobhya.                           | Vajrapāṇi.                                    |
+| 3.              | Kācyapa.                      | Ratnasambhava.                      | Ratnapāṇi.                                    |
+| 4.              | Śākyamuni.                    | Amitābha.                           | Avalokiteśvara-Padmapāṇi.                     |
+| 5.              | Maitreya.                     | Amoghasiddhi.                       | Viśvapāṇi.                                    |
+| Tibetan names:  |                               |                                     |                                               |
+| 1.              | 'Khor-ba 'dsig.               | rNam-par snaṅ-mdsad.                | Kun-tu bzaṅ-po.                               |
+| 2.              | gSer-thub.                    | Mi-bskyod-pa.                       | Phyag-na rdo-rje.                             |
+| 3.              | 'Od-sruṅ.                     | Rin-čhen 'byuṅ-gnas.                | Phyag-na rin-čhen.                            |
+| 4.              | Śākya thub-pa.                | 'Od-pag-med.                        | Spyan-ras-gzigs.                              |
+| 5.              | Byams-pa.                     | Don-yod 'grub-pa.                   | Phyag-na tshogs.                              |
+
+| _Meditative Buddhas._ | _Color._       | _Mudrā._ | _Situation._  | _Vehicle._ |           |
+|-----------------------|----------------|----------|---------------|------------|-----------|
+| 1.                    | Vairocana.     | white.   | teaching.     | center.    | lion.     |
+| 2.                    | Akṣobhya.      | blue.    | attestation.  | orient.    | elephant. |
+| 3.                    | Ratnasambhava. | yellow.  | charity.      | south.     | horse.    |
+| 4.                    | Amitābha.      | red.     | meditation.   | west.      | swan.     |
+| 5.                    | Amoghasiddhi.  | green.   | fearlessness. | north.     | garuḍa.   |
+
+*) P. Oltramare, L'Histoire des idées théosophiques dans l'Inde, La Théosophie bouddhique, p. 295; Grünwedel, Buddhist art in India, p. 195.
+
+According to the Kālacakra system, the five meditative Buddhas emanated from Ādi-Buddha, a primordial Buddha of the system.
+
+The meditative Buddhas are usually seen on paintings wearing a monastic robe, deprived of all ornaments. Sometimes they are represented with their śaktis or female energies. When represented under this last form they wear a diadem and the usual* Bodhisattva attire.
+
+*) A. Grünwedel, Mythologie, p. 100.
+
+The fact that Sir Aurel Stein and Dr. Brainerd Spooner have discovered at Sarhi-Bahlol several figures of Bodhisattvas, wearing in their diadems small figures of Buddhas seated in meditation, seems to indicate that the Gandhāra artists were already acquainted with the theory of transcendental Buddhas. Anyhow, the custom of placing a Dhyāni-Buddha in the diadem of a Bodhisattva goes back to the Gandhāra period.*
+
+*) A. Foucher, L'art gréco bouddhique du Gandhāra, vol. 2, fasc. 1, p. 333-336.
+
+The group of the five meditative Buddhas is represented on paintings Nr. 16 and Nr. 18.
+
+Painting Nr. 7 (20 1/2 x 16).
+
+This painting represents the Sukhāvatī paradise (Tib. bDe-ba-čan).
+
+The Dhyāni-Buddha Amitābha is seen seated in meditation, his hands crossed on his lap, holding the alms bowl. The color of the body is red. The meditative Buddha is seated on a lotus throne. In front of the throne is seen a pond with a lotus flower which supports the Wheel of the Law. Round the meditative Buddha are seen the eight principal Bodhisattvas, holding lotus flowers in their hands. 
+
+[Number 5. Buddha and his two great disciples.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-005.jpeg)
+
+---
+
+# Tutelary Deities.
+
+(Tib. Yi-dam)
 
 ...
