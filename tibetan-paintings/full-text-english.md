@@ -10,6 +10,8 @@
 
 # [Buddhas.](#buddhas-1)
 
+# [Dhyāni-Buddhas.]()
+
 ...
 
 ---
@@ -372,5 +374,57 @@ The following scheme will facilitate the description. The numbers on it do not c
 5\. Kanakabharadvāja (Tib. Bha-ra-dva-dsa gser-čan). He dwells in Aparagodānī. He is seen in meditation. He is the eighth of the Tibetan list.
 
 6\. Rāhula (Tib. sGra-gčan 'dsin). He dwells in Priyaṅgudvīpa. His attribute is a crown. He is the tenth of the Tibetan list.
+
+7\. Kālika (Tib. Dus-ldan). He dwells in Tāmradvīpa. His attributes are two golden trinkets. He is the fourth of the Tibetan list.
+
+8\. Piṅḍolabharadvāja (Tib. Bha-ra-dva-dsa bsod-sñoms len). He dwells in Pūrvavideha. His attributes are the book and the bowl. We have already mentioned that this Arhat was widely venerated. Space does not permit us to relate the legends concerning him.* He is the twelfth of the Tibetan list.
+
+*) On the legend of Piṇḍola, see the article of S. Levi et Ed. Chavannes, J. As. 1916, 2, p. 204; J. Przyluski, La légende de l'Empereur Aśoka, pp. 68-98.
+
+9\. Ajita (Tib. Ma-pham-pa). He dwells on mount Uśīra. He is seen in meditation, the head covered by his upper garment. He is the second of the Tibetan list.
+
+10\. Panthaka (Tib. Lam-bstan). He dwells in the Trayastrimśas heaven. His attribute is a book. He is the thirteenth of the Tibetan list.
+
+[Number 2. Arhats.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-002.jpeg)
+
+11\. Vanāvasi (Tib. Nags-na gnas). He dwells in the Saptaparṇī cave. His attribute is a fan. He is the third of the Tibetan list.
+
+12\. Nāgasena (Tib. kLu'i sde). He dwells on Mount Vipulapārśva. His attributes are a vase and the stick called khakkhara. (Tib. 'Khar-gsil). He is the fourteenth of the Tibetan list.
+
+13\. Kanakavatsa (Tib. gSer-be'u). He dwells in Kāśmīra. His attribute is a lasso. He is the seventh of the Tibetan list.
+
+14\. Gopaka (Tib. sBed-byed). He dwells on Mount Vatsa. His attribute is a book. He is the fifteenth of the Tibtean list.
+
+15\. Cūḍapanthaka (Tib. Lam-phran-bstan). He dwells on Mount Gṛdhrakūṭa; he is seen meditating. He is the eleventh of the Tibetan list.
+
+16\. Abheda (Tib. Mi-phyed). He dwells on the Himālayas. His attribute is a stūpa. He is the sixteenth of the Tibetan list.
+
+The group of sixteen great Arhats is assisted by Hva-śang and Dharmatala, called in Tibetan "religious supporters" (bstan-pa'i sbyin-bdag). The two last named belong to the popular religion of China, this being evident by the fact that they are considered to be able to master the Dragon and the Tiger --- two symbols current in Taoism. There can be little doubt that they were introduced into the group of sixteen Arhats in China and that the newly constituted group reached Tibet from China.* They are not considered to be Arhats in Tibet: this is made clear by their dress. The upāsaka Dharma (Tib. dGa-bsñen Dharma) is regularly represented with long hair, wearing the costume of a laic. On our painting he is seen standing, holding a fan and a vessel. Note a kind of string (it may be the smoke from the incense contained in the vessel) which connects him with a small figure of the Dhyāni-Buddha Amitābha, seen a little above the altar. His favourite animal, the tiger, is seen at his side. Dharmatala, or Dharmatrāta, was a celebrated doctor of the Hināyāna, the compiler of the Udānavarga, a collection of verses in Sanskrit corresponding to the Pāli Dhammapada. Hva-śang is a transcription of the Chinese huo-shang, which in its turn turn comes back to the Skrt. upadhyāya, "preceptor," through the intermediary of a Khotanese form.* The title is an ordinary designation of a monk in Chinese Buddhism. In Tibet the name Hva-śang is applied to the Chinese monk who came to Tibet during the reign of king Kri-sroṅ Ide-btsan to preach the Mahāyāna. His full name in Tibetan Buddhism is Hva-śang Mahāyāna. He is represented on our banner holding a rosary and a conch. Round him are seen children at play. Hva-śang is usually personified in religious dances performed by the lamas.
+
+*) S. Levi and Chavannes, ibid., p. 146-147.
+
+*) Ibid., p. 151.
+
+The paintings Nrs. 2 (23 1/4 x 16 1/4) and 3 (23 1/4 x 16 1/4) belong to a group of seven banners representing the Buddha surrounded by the Great Arhats. The middle one, on which the Exalted One was undoubtedly represented, is missing. Both paintings are well executed. On banner Nr. 2 we see represented the Arhats Kanakavatsa and Cūḍapanthaka. They are assisted by Hva-śang. For all details see the description of the painting Nr. 1. In the upper corners are seen the green Tārā and the goddess Sitātapatrā. In the lower corners we see Virūḍhaka and Dhṛtarāṣṭra. Virūḍhaka is attended by a kumbhāṇḍa. Dhṛtarāṣṭra has at his side a playing gandharva. (Shigatse School.) The painting Nr. 3 represents the Arhats Panthaka and Abheda. They are assisted by Dharmatala, who is seated, holding an umbrella. In the upper corners are seen the white Tārā and the goddess Uṣṇīṣavijayā. In the lower corners we see Virūpākṣa and Vaiśravaṇa. A Nāgā is presenting Virūpākṣa with a conch. A yakṣa is offering a basket of fruits to Vaiśravaṇa.*
+
+*) All the four king-guardians are seen clad in armour. On Tibetan armour, see the important publication by Dr. B. Laufer, Chinese Clay figures, Part 1, Prolegomena on the History of Defensive armor, pp. 252-257.
+
+The banner Nr. 4 (24 1/2 x 15 3/4) is particularily interesting for its technique. The presence of a camel and the Mongolian costume of the two men offering flowers and fruit seem to indicate the east-tibetan origin of our banner. The style is very different from the others already described. We are of the opinion that the painting is the work of a Derge artist. The Arhats represented are: Ajita, who is seen seated on a throne: a strange looking creature is presenting him fruit; Kālika, seen seated on a throne, having in front of him a pair of shoes and a table with his bowl standing on it; two men, possibly Mongols, are offering him flowers and fruit. Vanavāsi, seated on a mat; a forest-dweller is offering him a basket with fruit. In the upper corners of the banner are seen a Tārā and an Avalokiteśvara.
+
+[Number 3. Arhats.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-003.jpeg)
+
+Because of its style, we consider the painting Nr. 5 (22 3/4 x 15 1/2) to belong to the same group as painting Nr. 4. We see the Exalted One seated on the lotus throne. In his left hand he is holding his alms bowl, with his right hand he is making the sign of attestation. In front of the throne is seen an altar with the Wheel of the Law on it. The back of the throne is richly ornamented. On the top of it we see the bird Garuḍa (Tib. Khyuṅ). In front of the altar are two deities, one presenting the Wheel of the Law, the other a kind of conch. On the top of the painting we see the future Buddha, Maitreya, with two lotus flowers supporting an amṛta vessel, and a Wheel of the Law, and the Buddha Dīpaṅkara (Tib. Marme-mdsad). The Exalted One is attended by his two great disciples Śāriputra and Maudgalyāyana.
+
+Painting Nr. 6 (28 x 21) represents Śākyamuni seated on a lotus throne. With his left hand the Buddha is holding the alms bowl, with his right hand he is making the sign of attestation. The color of the body is golden; the monastic robe is thrown on both shoulders, leaving the chest uncovered. The robe is of a yellow color, the lower garment (Pāli: antaravāsaka) is red with golden embroidery. The inside circle of the nimbus round the head is green, the outside one is violet, the halo round the body is blue and yellow, radiating with golden rays. In front of the throne are seen the Wheel of the Law and a pond with lotuses, The Buddha is surrounded by his eight spiritual sons (ñe-ba'i sras-čhen brgyad-pa). On the top of the painting are seen the Dhyāni-Buddha Amitābha: Vaiḍūrya-rāja, the Buddha of Medicine; the goddess dMag-zor-ma, a fearful form of Śrīdevī (Tib. dPal-ldan lha-mo). She is seen holding the cup Kapāla and brandishing the club. To the right is seen the goddess Ma-čig dpal lha-mo, a benign form of Śrīdevī. The goddess is holding the banner, and a basket filled with fruit.
+
+On the lower part of the painting are seen Kuvera, the god of riches, riding a white lion and holding the banner, and the mungoose, vomiting the jewel; the color of the body is golden; this form of Kuvera is called in Tibetan zNam-sras-gser-čhen; Mahākāla, under the form of the "Protector of the Tent," (Tib. Gur-gyi mgon-po); and the goddess Vasudhārā (Tib. Nor-'dsin ser-mo), the śakti of Kuvera; the color of the goddess is golden; she is seen holding in her six hands the sword, the wheel of life, the book, the flower, and a basket of fruit; one of the hands makes the sign of charity.
+
+[Number 4. Arhats.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-004.jpeg)
+
+---
+
+# Dhyāni-Buddhas.
+
+(Tib. rGyal-ba rigs-lṅa)
 
 ...
