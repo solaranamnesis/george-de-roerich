@@ -484,4 +484,88 @@ The Dhyāni-Buddha Amitābha is seen seated in meditation, his hands crossed on 
 
 (Tib. Yi-dam)
 
+It is difficult to interpret this term without running into mistakes. The word itself (yi-dam yid-dam-pa) is explained as "one possessing a firm or fixed mind." It is a divine being manifesting itself in meditation (Yi-dam ni: yid-brtan-po dam-par byed-čiṅ lha sgom-pa'i phyir-ro).* This class of deities is represented in this collection by several well executed paintings, on which we see Vajrakīla, Yamāntaka, Samvara, and others. Each lama, often each buddhist devotee, has a tutelary deity (Skrt. iṣṭa-devatā) of his own. He chooses his protector either for the whole of his life or for some special purpose. The Tantric literature contains many passages describing the character of the different Yi-dams and prescribing various rites in order to propitiate the deity. Usually these protecting deities appear under a terrible form (Skrt. bhairava; Tib. drag-po).
+
+*) I am indebted for this information to Lama Lobzang Mingyur.
+
+They are represented on images with several heads and with numerous hands, holding flaming attributes. Usually they are seen associated with their śaktis. This last form is considered to be very efficient in conjurations. They appear on a flaming background. The yi-dams of the rNiṅ-ma sect are winged; those of the dGe-lugs-pa have no wings. The head of such tutelary deities is adorned with a crown made of human skulls (Tib. thod-pan). Round their bodies are often seen garlands of human heads. They are standing on prostrate human bodies. Their arms and legs are adorned with bracelets. Round the waist they have a kind of belt with ribbons and precious stones. On their chest they often wear a kind of string with the image of the Wheel of the Law in the middle. On some Tantric images a serpent is seen ready to bite the Wheel. The cult of these tutelary deities spread very widely over the countries where Lamaïsm gained a stronghold. Each Buddhist sect has a protecting deity of its own: thus Yamāntaka is the yi-dam of the dGe-lugs-pa sect, and the cult of Vajrakīla is especially recommended among the rNiṅ-ma-pa lamas.
+
+The painting Nr. 8 (Pl. 6), (25 1/2 x 17), represents Vajrakīla with his śakti (Tib. rDo-rje phur-pa yab-yum). The banner is of an especially fine execution. The figures are numerous and drawn with great care. The iconographical value of the painting is great, for each of the deities represented has its name inscribed below. Vajrakīla is seen in the middle. He has three heads adorned with the crown of human skulls. His body is dark green; that of his śakti is green. The head to the right is red, that to the left is white. He has six arms; the first pair of hands is holding the magic dagger; the second --- the thunderbolt, and the magical sceptre with the trident; the third pair --- the vajra, and the lasso. The deity is wearing a tiger skin and an elephant skin. The garland of human heads is seen round the body. The śakti is holding the cup made of a human skull.
+
+1\. A tantric form of the Bodhisattva Samantabhadra (Tib. Čhos-sku Kun-bzaṅ yab yum). Samantabhadra (Tib. Kun-tu bzaṅ-po) is the Dhyāni-Bodhisattva of the Dhyāni-Buddha Vairocana. He is venerated by the old sects as a primordial Buddha.
+
+2\. Vajrasattva (Tiv. rDo-rje sems-pa). The attributes are not clearly seen.
+
+3\. Padmasambhava (Tib. sLob-dpon Padma 'byuṅ-gnas). The teacher is holding the thunderbolt, the cup, and the magic sceptre.
+
+4\. rJe-btsün Mar-pa. Mar-pa was the teacher of the famous Tibetan poet-mystic Mi-la ras-pa (1038-1112 CE). Mar-pa is said to be the pupil of 'Brom-ston and Atīśa. He was the founder of the bKa-brgyud-pa (pron. Ka-jü-pa) sect (about 1080 CE), whose object it was to reconcile the ideas of the old sects with those of the newly established bKa-gdams-pa sect, whose founder was Atīśa.
+
+5\. The figure probably represents the great lo-tsa-ba or translator Vairocana, who began under the guidance of Padmasambhava the translation of Buddhist scriptures into Tibetan. According to a legend, Vairocana knew 300 languages.* He is seen holding the quadruple vajra and a book. He wears the lama dress of the rÑiṅ-ma sect.
+
+*) B. Laufer, Der Roman einer Tibetischen Königin. Leipzig, 1911; see index under Vairocana.
+
+[Number 8. Vajrakīla.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-006.jpeg)
+
+6\. Jo-mo bKris-tshe-riṅ-ma. The goddess is seen holding a mirror and the cup made of a human skull.
+
+7\. Hūmkāra. The deity is represented with six hands. The attributes are: the magic dagger, the hook, the knife, the bow and arrow. The color of the body is green, the śakti is light green.
+
+8\. Hayagrīva (Tib. rTa-mgrin, "Horse-neck"). Venerated as the protector of horses. His cult was specially recommended by Padmasambhava to the king Kri-sroṅ lde-btsan. He is said to drive away demons by neighing. He usually holds the sceptre, the lasso, the wheel and the sword. The color of the body is red-brown. The śakti on our painting is light red, but usually she is light blue. On this painting the yi-dam has six hands and is holding the magic dagger, the quadruple thunderbolt, the sceptre, the thunderbolt, and the cup.
+
+9\. dbYug-sñon sder-mo. The deity is represented with six hands, holding the magic dagger, the lasso, the club, the thunderbolt, and the cup. The color of the yi-dam is dark green, the śakti is light green.
+
+10\. 'Dod-dral-mṅa. The deity is represented with six hands, holding the magic dagger, the hook, the spear, the thunderbolt, and the cup. The color of the body is light red, the śakti is white.
+
+11\. rNam-rgyal sñam-ma. The deity is represented with six hands, holding the magic dagger, the wheel, the bell, the thunderbolt, and the cup. The color of the yi-dam and of the śakti is white.
+
+12\. mGon-po ma-liṅ. The deity is represented with six hands, holding the maggic dagger, the sword, the lasso, the thunderbolt and the cup. The color of the deity is green, the śakti is light green.
+
+13\. gŚin-rje-gśed. The deity has six hands, holding the magic dagger, the mungoose, the sceptre, the thunderbolt and the cup. The color of the deity is dark green, the śakti is green.
+
+14\. Khams-gsum-gsod-byed. The yi-dam is represented with six hands holding the magic dagger, the axe, the lasso, the thunderbolt, and the cup. The color of the deity and of the śakti is white.
+
+15\. Mi-gyo gtun-khuṅ. The deity is represented with six hands, holding the magic dagger, the lasso, the knife, the thunderbolt, and the cup. The color of the deity and of the śakti is light green.
+
+16\. sTobs-čhen bskul-byed. The deity has six hands, holding the magic dagger, the bow and arrow, the thunderbolt, and the cup. The color is dark green, the śakti is green.
+
+17\. Ratnakīla. This deity is represented with six hands, holding the magic dagger, the mungoose, the lasso, the mirror and the cup. The color is yellow. The lower part of the body is in the shape of a dagger.
+
+18\. Padmakīla. The deity has six hands, holding the magic dagger, the chain, the sword, the lotus and the cup. The color is red.
+
+19\. Vajrakīla. This form of the yi-dam has six hands, holding the magic dagger, the wheel, the lasso, the hook and the thunderbolt. The color is green.
+
+20\. Karmakīla. Ihe deity has six hands, holding the magic dagger, the sceptre, the bell, the quadruple thunderbolt, and the lasso.
+
+21\. sṄags-kyi sruṅ-ma. This deity is considered to be the protector of the Tantra doctrine. The deity is holding the trident and the cup made of a human skull. Round the body is seen the string of human heads.
+
+22\. Ye-śes mgon-po, a form of Mahākāla. The deity is regarded as the protector of knowledge. He is represented with six hands, holding the magic dagger, the cup, the thunderbolt, the club, the stick and the rosary. The color of the deity is blue.
+
+23\. Rāhu (Tib. sGra-gčan). The demon is represented shooting the bow. He has nine heads and four arms. Besides the bow, he is holding the lasso and the thunderbolt (usually he holds a banner). His body is in the form of a dragon. On the painting there is the following Tibetan inscription: The great rṣi Rāhu accepted the words of Vajradhara: drink the warm blood of the heart of an enemy and cut down the family of an enemy at its foot (Draṅ-sroṅ čhen-po Rā-hu-las rDo-rje 'čhaṅ-gi bka bšin-du yid la snaṅ (gnag): Dgra-bo'i sniṅ-khrag drom-mo šal-du gsol, dgra-bo'i mi-brgyud rtsa-nas čhod).
+
+24\. Phyag-bši mgon-po. The deity is represented with four heads and four arms, holding the club, the banner, the knife and the lasso. It is seen riding on a phantastic animal with the horns of a bull. The color of the deity is blue.
+
+25\. Srid-pa'i rgyal-mo. The deity has six hands, holding the thunderbolt, the cup, the sword, the mungoose, the club and the trident. It is riding a mule.
+
+26\. Lha čhen-po rdo-rje 'bar-ba rtsal. The deity is riding a horse and holding a whip.
+
+27\. dPal-ldan lha-mo (Skrt. Śrīdevī, Śrimatī Devī). The goddess is holding a sword and the cup. She is seen riding a mule.
+
+[Number 9. Samvara.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-007.jpeg)
+
+28\. bTsan rgyal. He wears an armour and is seen on horseback. With his right hand he is spearing a human body, lying on the ground; with his left hand he catches the same body with a rope. bTsan-rgyal is a demon king conquered by Padmasambhava.
+
+29\. bDül-rgyal, the king of demons. He is seen on horseback, holding a banner and a rope.
+
+30\. kLu-rgyal, Nāgarāja. He is seen on horseback, holding a vase and a string.
+
+The painting Nr. 9 (pl. 7) (25 1/4 x 16 3/4) represents the yi-dam bDe-mčhog (Samvara). The particular form represented on our painting is called in Tibetan dPal 'khor-lo sdom-pa. The yi-dam is represented with his śakti. He has four heads. The central one is blue, the two heads to the left are green and red, the head to the right is yellow. He wears the crown of human skulls, the tiger skin and the string of severed human heads. In his twelve hands he is holding the following attributes: (right) the elephant skin (Tib. Glaṅ-l pags), the axe, the knife (gri-gug), the trident, the drum and the thunderbolt; (left) the elephant skin, the cup, the lasso, the severed head of Brahma (Tib. Tshaṅ-pa'i sgo) with four faces, the magical sceptre and the thunderbolt.
+
+1\. His śakti is holding the gri-gug knife. The yi-dam's body is of a blue color, his śakti is red. Both are standing on prostrate human bodies. Under the right foot, the body of a man holding the knife and the cup: under the right foot the body of a man holding the drum. Above is seen Akṣobhya with his śakti (Tib. Mi-bskyod-pa yab-yum). The Dhyāni-Buddha is holding a thunderbolt.
+
+2\. The yi-dam dPal-dus-kyi 'khor-lo. dPal-dus-kyi 'khor-lo is the yi-dam of Śambhala, a mystic country in the north where the Kālacakra system originated. The body of the yi-dam is blue. One of the legs is white, the other red. He has three heads. He is represented with twenty four arms, with numerous attributes. His śakti is yellow.
+
+3\. Hevajra (Tib. dPal-kyai rdo-rje). The yi-dam is green, the śakti is blue. The deity is represented with eight heads and four legs.*
+
+*) For a description of this yi-dam, see Prof. A. Grünwedel, Mythologie des Buddhismus in Tibet und der Mongolei, p. 107 et fig. 86.
+
 ...
