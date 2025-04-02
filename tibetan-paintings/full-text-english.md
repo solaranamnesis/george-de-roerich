@@ -14,7 +14,7 @@
 
 # [Dhyāni-Buddhas.](#dhyāni-buddhas-1)
 
-# [Tutelary Deities.]()
+# [Tutelary Deities.](#tutelary-deities-1)
 
 ...
 
