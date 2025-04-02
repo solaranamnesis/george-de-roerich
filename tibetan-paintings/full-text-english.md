@@ -448,13 +448,13 @@ Mahāyāna Buddhism knows five meditative or celestial Buddhas. They are eternal
 | 4.              | Śākya thub-pa.                | 'Od-pag-med.                        | Spyan-ras-gzigs.                              |
 | 5.              | Byams-pa.                     | Don-yod 'grub-pa.                   | Phyag-na tshogs.                              |
 
-| _Meditative Buddhas._ | _Color._       | _Mudrā._ | _Situation._  | _Vehicle._ |           |
-|-----------------------|----------------|----------|---------------|------------|-----------|
-| 1.                    | Vairocana.     | white.   | teaching.     | center.    | lion.     |
-| 2.                    | Akṣobhya.      | blue.    | attestation.  | orient.    | elephant. |
-| 3.                    | Ratnasambhava. | yellow.  | charity.      | south.     | horse.    |
-| 4.                    | Amitābha.      | red.     | meditation.   | west.      | swan.     |
-| 5.                    | Amoghasiddhi.  | green.   | fearlessness. | north.     | garuḍa.   |
+|   | _Meditative Buddhas._ | _Color._ | _Mudrā._      | _Situation._ | _Vehicle._ |
+|---|-----------------------|----------|---------------|--------------|------------|
+| 1.| Vairocana.            | white.   | teaching.     | center.      | lion.      |
+| 2.| Akṣobhya.             | blue.    | attestation.  | orient.      | elephant.  |
+| 3.| Ratnasambhava.        | yellow.  | charity.      | south.       | horse.     |
+| 4.| Amitābha.             | red.     | meditation.   | west.        | swan.      |
+| 5.| Amoghasiddhi.         | green.   | fearlessness. | north.       | garuḍa.    |
 
 *) P. Oltramare, L'Histoire des idées théosophiques dans l'Inde, La Théosophie bouddhique, p. 295; Grünwedel, Buddhist art in India, p. 195.
 
