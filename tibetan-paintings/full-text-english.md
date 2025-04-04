@@ -16,6 +16,8 @@
 
 # [Tutelary Deities.](#tutelary-deities-1)
 
+# [Bodhisattvas.]()
+
 ...
 
 ---
@@ -591,5 +593,27 @@ Painting Nr. 11 (24 1/4 x 16 1/4) represents Yamāntaka (Tib. rDo-rje 'jigs-byed
 9\. mGon-po bram-ze gzugs-čan, or the "Protector with the body of a Brahman." His body is blue, the hair on the head is white. He is holding the sword, the cup and the banner. On his right arm hangs a garland of human skulls. He is sitting on a prostrate human body. The protector is also a form of Mahāhkāla.
 
 [Number 12. mGon-po Phyag-drug.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-008.jpeg)
+
+10\. Čhos-rgyal phyi-sgrub, a form of the god of death, Yama. He is standing on a bull, holding the club and the lasso. He has the head of a bull; his color is blue. His śakti, seen behind him, is light blue.
+
+11\. mGon-po phyag-drug-pa, or the "Protector with six hands." This form of Mahāhkāla was recommended to the Mongols by the third Dalai-Lama. The god is holding the gri-gug knife, the cup, the drum, the lasso, the trident and the string of skulls. The color is blue. He is standing on a prostrate human body. He is one of the "eight terrible ones." (Tib. drag-gšed).
+
+12\. Śrīdevī (Tib. Lha-mo). The deity is seen riding a white mule. She is holding the trident and the cup. Her body is blue. She is regarded as the protector of Lhasa and the spouse of Yama. On this painting she is seen crossing a pond of demon's blood.
+
+Painting Nr. 12 (Pl. 8) (23 1/4 x 15 1/2).
+
+The identification of this yi-dam is not certain. The lamas, whom we had the occasion to ask, called the deity "mGon-po phyag-drug." The color of the deity is blue, its śakti is green. The deity is represented with three heads and six arms. The head to its left is red. The yi-dam is holding the thunderbolt and the cup kapāla. Round the central figure are seen different yi-dams, probably various forms of the mGon-po phyag-drug. Above the central figure are seen: the Bodhisattva Samantabhadra, Vajradhara, Mañjuśrī, Śākyamuni, the teacher Padmasambhava, and the founder of the Karma-pa sect (Tib. rGyal-ba Kar-ma-pa).
+
+The painting comes from a Kar-ma-pa monastery. It is designed with gold on a black background. The figures are colored. All the details of ornamentation are executed with great care. The painting belongs to the sino-tibetan art of the 18-19th centuries.
+
+---
+
+# Bodhisattvas.
+
+(Tib. Byaṅ-čhub sems-pa) 
+
+Let us turn now to the study of the different forms of Bodhisattvas --- those saintly beings whose cult is so widely spread wherever the teachings of the Great Vehicle found their way. Various explanations have been given to the term "Bodhisattva." The reason for such a multitude of interpretations lies in the fact that the term itself is not easily understood. "Bodhi" signifies "highest consciousness," and "sattva" generally means reality, essence, a living being. The term tends to convey the notion of a being who contains in himself the germ of Bodhi.
+
+The Hināyāna proclaimed the ideal of Arhatship, whose object was the passionless striving for Nirvāṇa. The Mahāyāna in its turn proclaimed the lofty ideal of Bodhisattvas, numerous "as the sand of the Ganges," whose chief characteristic is compassion.
 
 ...
