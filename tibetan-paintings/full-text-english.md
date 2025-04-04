@@ -16,7 +16,7 @@
 
 # [Tutelary Deities.](#tutelary-deities-1)
 
-# [Bodhisattvas.]()
+# [Bodhisattvas.](#bodhisattvas-1)
 
 ...
 
