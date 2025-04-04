@@ -568,4 +568,28 @@ The painting Nr. 9 (pl. 7) (25 1/4 x 16 3/4) represents the yi-dam bDe-mčhog (S
 
 *) For a description of this yi-dam, see Prof. A. Grünwedel, Mythologie des Buddhismus in Tibet und der Mongolei, p. 107 et fig. 86.
 
+In the four corners are represented four Ḍākinīs (Tib. mKa-'gro-ma). All four wear the usual Ḍākinī attire: the crown of skulls and the string of human skulls. They have four hands holding the magic sceptre, the cup, and the drum. Nr. 4 is yellow, Nr. 5 is red, Nr. 6 is grey, Nr. 7 is light green. All four are standing on prostrate human bodies.
+
+The yi-dam bDe-mčhog incarnates himself in the Grand Lama of Peking, the lCaṅ-skya Khutukhtu. The cult of this yi-dam is particularly popular in the Tsa-ri province.
+
+Painting Nr. 10 (30 3/4 x 22 1/2) represents the yi-dam bDe-mčhog. The painting is very damaged.
+
+Painting Nr. 11 (24 1/4 x 16 1/4) represents Yamāntaka (Tib. rDo-rje 'jigs-byed) surrounded by tutelary deities. Yamāntaka is the Tantric form of the Bodhisattva Mañjuśrī, who subdued under this form the king of death, Yama. He is considered to be the yi-dam of the dGe-lugs-pa sect. Yamāntaka has the head of a bull. Above him is seen the red head of a fearful deity and the scornful face of the Bodhisattva Mañjuśrī. The body of the yi-dam is blue, its śakti is light blue. Yamāntaka has sixteen legs and thirty-four arms. He is holding the following attributes: in his right hands he has the gri-gug knife, the tiger skin, the hook, the magic dagger, the club, the mortar, the magic sceptre, the knife, the conch, the spear, the thunderbolt, the axe, a kind of hammer, a spear, a sword, an arrow and the drum. In his left hands he has a cup made of a human skull, the skin of a tiger, a severed human head, a shield, a human body on a spear, a human leg, a pot, the lasso, the skull, a human head, human bowels, a bell, and a spear. He is standing on human and animal bodies.
+
+1\., 2., 3. represent Tsoṅ-kha-pa and his two disciples rGyal-tshab-rje, holding the lotus and the wheel, and mKhas-grub-rje holding the bowl. rGyal-ba Tsoṅ-kha-pa is sometimes seen assisted by Atīśa and Nāgārjuna.
+
+4\. represents dPal-gsaṅ ba 'dus-pa. The deity is blue, the śakti light blue.
+
+5\. dPal-'khor-lo sdom-pa.
+
+6\. Avalokiteśvara with four arms (Tib. Spyan-ras-gzigs phyag-bši-pa).
+
+7\. Vaiśravaṇa (rNam-thos-sras), holding the banner and the mungoose.
+
+8\. Gur-gyi mgon-po, the "Protector of the Tent," a form of Mahākāla. The deity is blue and is holding the gri-gug knife and the cup.
+
+9\. mGon-po bram-ze gzugs-čan, or the "Protector with the body of a Brahman." His body is blue, the hair on the head is white. He is holding the sword, the cup and the banner. On his right arm hangs a garland of human skulls. He is sitting on a prostrate human body. The protector is also a form of Mahāhkāla.
+
+[Number 12. mGon-po Phyag-drug.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-008.jpeg)
+
 ...
