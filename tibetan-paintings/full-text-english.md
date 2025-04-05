@@ -616,4 +616,56 @@ Let us turn now to the study of the different forms of Bodhisattvas --- those sa
 
 The Hināyāna proclaimed the ideal of Arhatship, whose object was the passionless striving for Nirvāṇa. The Mahāyāna in its turn proclaimed the lofty ideal of Bodhisattvas, numerous "as the sand of the Ganges," whose chief characteristic is compassion.
 
+Out of infinite compassion for humanity they delayed the attainment of Nirvāṇa and remained in this world to help the striving human beings and to preach the Law. The ideal of a Bodhisattva's sacrifice found its expression in the following words found in a passage quoted by Śāntideva in his "Compendium of Buddhist Doctrine"*: "A Bodhisattva in this world has no jewel that he does not give up out of love of the Law. There is no bodily activity on which he does not venture. Under innumerable forms they assist humanity and render help to those who implore them."
+
+To this effect it is said in the Vimalakīrti-nirdeśa, quoted by Śāntideva* "They (the Bodhisattvas) practice enjoyment among the sensual, they show meditation amongst those who meditate; they destroy Māra and give no opening to him. As a lotus in the fire exists not, even so they show that desires and meditation exist not. Of set purpose they become a courtezan to draw men and, alluring them by the hook of lust, establish them in the Buddha's wisdom. They become villagers at any time, or merchants, or chaplains, courtiers great or small, for the good of the world. For the poor they become treasures inexhaustible and, giving them gifts, produce the thought of enlightenment. Amidst those who are stiff in pride they become mighty athletes; they seek the supreme wisdom that destroys all pride. When any are tormented with fear, they stand ever before them, they give them security and ripen them for wisdom. Becoming the five kinds of transcendent knowledge, virtuous sages, they teach all beings in virtue, in the effort of mercy and tenderness. They look on the reverend who need service in this world, they become clever servants, or slaves, and render obedience. They do every thing clever in every kind of service to make one become a lover of the Law."
+
+*) Śiksāsamuccaya, p. 39, Translated by C. Bendall and W. Rouse. London, 1922.
+
+*) Ibid., pp. 291.
+
+Invisible, they are always present among men. Thus in Buddhist monasteries in China they are thought to attend the religious sermons delivered by the Abbot, who offers to them, invisibly present, incense, while the whole congregation of monks sings: "Hommage to the Bodhisattvas, Mahāsattvas, who are assembled here in multitudes, numerous as the sand of the Ocean."*
+
+*) De Groot, Code du Mahāyāna, p. 135.
+
+The spiritual evolution of a Bodhisattva, generally called his path (Skrt. caryā), consists of four distinct stages:
+
+1\. Prakṛticaryā, the original course.
+
+2\. Praṇidhānacaryā, the vow or firm resolution. According to ancient tradition, the future Bodhisattva has to pronounce his vow of firm resolution before a Buddha. Having been annointed by the Tathāgata, he becomes a Bodhisattva, striving for higher consciousness, wearing the costume of a royal prince, as symbol of his being a spiritual son af a Tathāgata, the Emperor of the Universe. In the last two stages, he is already a Bodhisattva.
+
+3\. In this stage, called Anuloma-caryā, he acts in accordance with the vow taken.
+
+4\. In this stage he is already firmly established on his path, and therefore this stage is named "the path on which there is no return" (Skrt. Anivartana-caryā).
+
+The religious feelings of the Mahāyāna devotees found expression in the adoration of these innumerable infinitely-merciful beings. Among them there is a group of eight Bodhisattvas who are frequently seen on lamaïstic images. We give their names in their canonical order:
+
+1\. Mañjuśrī or Mañjughoṣa (Tib. 'Jam-dpal or 'Jam-dbyaṅs). The Bodhisattva is placed at the head of the list of the eight principal Bodhisattvas because of an erroneous interpretation of the second element of the name of the Bodhisattva, which was interpreted by Chinese translators as Skrt. śira, head.*
+
+*) Cf. Prof. S. Lévi, Le Nepal, 1, p. 343.
+
+2\. Vajrapāṇi (Tib. Phyag-na rdo-rje).
+
+3\. Avalokiteśvara (Tib. Spyan-ras-gzigs).
+
+4\. Kṣitigarbha (Tib. Sa-yi sniṅ-po).
+
+5\. Sarvanivaraṇaviṣkambhī (Tib. sGrib-pa rnam-par-sel).
+
+6\. Ākāśagarbha (Tib. Nam-mka sniṅ-po).
+
+7\. Maitreya (Tib. Byams-pa, pron. Čam-pa).
+
+8\. Samantabhadra (Tib. Kun-tu bzaṅ-po).
+
+Of this group of eight principal Bodhisattvas three are especially venerated throughout the Mahāyānist world, namely: Maitreya, the future Buddha, Avalokiteśvara, the All-merciful Lord, and Mañjuśrī, the Prince of knowledge.
+
+On lamaistic images the Bodhisattvas have the appearance of rājakumārās, or royal princes, adorned with jewels and other ornaments. They have the sign between the eyebrows, but do not have the protuberance on the skull. On their heads they wear the diadem (Skrt. mukuṭa; Tib. čod-pan). They wear bracelets on their arms (Skrt. keyūram; Tib. dpuṅ-rgyan). Heavy gold necklaces are hanging on their shoulders. The lower part of their body is wrapped in a piece of embroidered cloth called paridhāna, which is the prototype of the modern Hindu dhoṭi. On their shoulders is thrown a kind of shawl (Skrt. uttarīya) made of a transparent cloth with embroidery. They wear the brahmanic string which is thrown on the left shoulder and which serves to distinguish them from feminine deities, wearing a costume similar to that of the Bodhisattvas. Sometimes a Bodhisattva is seen wearing the skin of a deer or tiger.
+
+---
+
+# Maitreya.
+
+The Buddha of the future.
+
 ...
