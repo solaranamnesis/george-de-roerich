@@ -18,6 +18,8 @@
 
 # [Bodhisattvas.](#bodhisattvas-1)
 
+# [Maitreya.]()
+
 ...
 
 ---
@@ -667,5 +669,19 @@ On lamaistic images the Bodhisattvas have the appearance of rājakumārās, or r
 # Maitreya.
 
 The Buddha of the future.
+
+It is a difficult task to give only a brief sketch of this Bodhisattva, who incarnates in himself all the hopes of the Buddhist world --- from the island of Ceylon to the lamaseries of Transbaikalia in Siberia.
+
+Maitreya, "the Loving One," Ajita "the Invincible," such are the names given to him by his devotees. Maitreya is the only Bodhisattva known to the Hināyāna. Already in the Dīgha-Nikāya (3, p. 76) he is said to be the future Buddha, the successor of Śākyamuni. In a chapter of the Lalita-Vistara (ch. 5, p. 39), it is said that the Exalted One, before descending on earth from the Tuṣita heaven to become a Buddha appointed the Bodhisattva Maitreya as his successor and placed on his head his own Bodhisattva diadem.
+
+Centuries have elapsed, but the Buddhists of all sects expect the Future One to come. Fa-shien, the Chinese pilgrim of the 5th century CE, relates to us the legend of the monastic bowl of Śākyamuni, which lies hidden until the time of the manifestation of Maitreya has come.* But not only the bowl awaits the time of the coming of the future Buddha: in Mount Kukkuṭapāda, near Gayā, lies the body of Kācyapa, who preserves the monastic robes of Gautama, the Buddha. When Maitreya makes his appearance in this world, he will miraculously split the mountain and receive from the sage the robes of the last Buddha. These legends clearly reflect the belief that the future Buddha will come to continue the teaching of Śākyamuni.
+
+*) H. A. Giles, The travels of Fa-hsien, 74-75.
+
+The spread of Mahāyāna is associated with the name of Maitreya. Fa-hsien, who, during his travels in India, heard and transcribed many local legends, tells the following one on the miraculous origin of the image of Maitreya*: "In this country (Dārēl) there was formerly an Arhat who, using his divine power, carried a clever artisan up to the Tuṣita heavens to observe the height, complexion, and features of the Bodhisattva Maitreya, so that, when he came down, he might carve an image of him in wood.
+
+*) Ibid, p. 9 (but I have changed the "folded legs" of Giles' translation into a "pedestal," in agreement with a remark of Prof. P. Pelliot in _T'oung Pao_, p. 373).
+
+Altogether he made three journeys for observation and afterwards executed an image eighty feet in height, the pedestal of which was eight feet high. On fast days it always shines with a brilliant light. The kings of near countries vie with one another in their offerings to it. From olden times until now it has been on view in this place."
 
 ...
