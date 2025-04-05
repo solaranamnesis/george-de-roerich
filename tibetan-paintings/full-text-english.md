@@ -18,7 +18,7 @@
 
 # [Bodhisattvas.](#bodhisattvas-1)
 
-# [Maitreya.]()
+# [Maitreya.](#maitreya-1)
 
 ...
 
