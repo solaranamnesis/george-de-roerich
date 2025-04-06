@@ -20,6 +20,8 @@
 
 # [Maitreya.](#maitreya-1)
 
+# [Avalokiteśvara or Padampāni.]()
+
 ...
 
 ---
