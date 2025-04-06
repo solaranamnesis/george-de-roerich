@@ -22,7 +22,7 @@
 
 # [Avalokiteśvara or Padampāni.](#avalokiteśvara-or-padampāni-1)
 
-# [Mañjuśrī or Mañjughoṣa.]()
+# [Mañjuśrī or Mañjughoṣa.](#mañjuśrī-or-mañjughoṣa-1)
 
 ...
 
