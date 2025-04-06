@@ -22,6 +22,8 @@
 
 # [Avalokiteśvara or Padampāni.](#avalokiteśvara-or-padampāni-1)
 
+# [Mañjuśrī or Mañjughoṣa.]()
+
 ...
 
 ---
