@@ -840,6 +840,32 @@ Painting Nr. 19 (Pl. 13) (27 3/4 x 17 1/2).
  
 The painting represents the Siṃhanāda Lokeśvara (Tib. Spyan-ras-gzigs seṅ-ge-sgra). The artist has faithfully reproduced the Indian prototype, whose śivaïstic character was already mentioned by Mr. James Burgess and Prof. Grünwedel.*
 
+*) Cf. the sculpture in the Calcutta Museum, reproduced in the Etude sur l'Iconographie bouddhique of Prof. Foucher, fasc. 2, fig. 2.
+
 [Number 19. Siṃhanāda-Lokeśvara.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-013.jpeg)
+
+The Bodhisattva is seen seated on a lotus throne placed on the back of a lion. The Bodhisattva is seated in the pose of a king (rājalīlā). The color of the body is white. He wears the costume of an Indian ascetic. The right hand makes the sign of attestation; the left one is holding a lotus flower, on which are placed the sword and the cup made of a human skull full of fowers. On his right is seen a trident with a serpent round it. According to the sādhana published by Prof. Grünwedel,* the cup full of flowers emanates the five Tathāgatas, which are usually seen on images above the figure of the Bodhisattva. On our painting, instead of the five Tathāgatas, we see represented Bhaiṣajyaguru and his seven assistants. In front of the lion on which the Bodhisattva is riding is seen a lotus flower with a human being emerging out of it. Among the Tantric forms of the Bodhisattva Avalokiteśvara there exists one also called Siṃhanāda-Lokeśvara. The Bodhisattva in this form is accompanied by his śakti. His body is of a red color. His appearance is fierce, and he is seen "roaring like a lion." He has four hands holding the magic sceptre, the cup and the gri-gug knife.
+
+*) Mythologie, p. 132-134.
+
+Painting Nr. 20 (Pl. 14) (26 1/4 x 18 1/2).
+
+This painting represents the maṇḍala or mystic circle of Amoghapāśa, a form of the Bodhisattva Avalokiteśvara. Amoghapāśa (Tib. Don-šags) is seen in the central circle of the maṇḍala. He is represented standing, with eight hands holding the book, the trident, the lotus, the amṛta vessel, the rosary, and the lasso. One hand is making the sign of fearlessness, another the sign of charity. Round his waist he wears the tiger skin. His maṇḍala is composed of the Dhyāni-Buddha Amitābha, Śākyamuni, Bhaiṣajyaguru, rGyal-ba Seṅ-ge'i ṅa-ro, seen holding the bowl and making the sign of charity, and four forms of Tārā (yellow, red, green, and blue). Above and below the maṇḍala are seen eight figures of the green Tārā delivering from the eight dangers (Tib. 'Jigs-pa brgyad skyobs-ma).
+
+Painting Nr. 21.
+
+This painting represents another form of Amoghapāśa-Avalokiteśvara. The Bodhisattva is seen seated cross-legged on a lotus throne. His body is white. He has four heads, each head wearing in the diadem a small figure of Dhyāni-Buddha Amitābha. The Bodhisattva is represented with four hands holding the trident, the lotus flower and the lasso. On his shoulders he wears a deer skin. Round him are seen eight figures of the green Tārā.
+
+[Number 20. Maṇḍala of Amoghapāśa.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-014.jpeg)
+
+---
+
+# Mañjuśrī or Mañjughoṣa.
+
+(Tib. 'Jam-dpal or 'Jam-dbyaṅs) 
+
+To end our brief sketch of Bodhisattvas honoured by the Buddhist of the Mahāyāna, let us briefly describe the Bodhisattva Mañjuśrī or Mañjughoṣa. In this collection there is no painting representing the Bodhisattva, but he is regularly seen in the parivāra of Avalokiteśvara and on paintings representing rGyal-ba Tsoṅ-kha-pa, whose spiritual preceptor he had been. Mañjuśrī, also called Vāgīśvara, "the prince of speech," is the patron of transcendental knowledge, learned in innumerable dhāraṇīs and magic formulae.
+
+His chief sanctuary is located in China, in the Shan-si province, on the mountain with the five peaks (Chin. Wu-t'ai-shan; Tib. Ri-bo rtse-lṅa; Skrt. Pañcaśīrṣaparvata). From there he is said to have visited on several occasions the region of Nepal, and is regarded as its virtual creator. The cult of Mañjuśrī of Wu-t'ai-shan is known in Tibet, and the Chinese pilgrim I-tsing, who visited India in the 7th century CE, records the fact that the Wu-t'ai-shan sanctuary was known in the India of his time.* The cult of Mañjuśrī is especially popular in the eastern parts of Tibet and the great Tibetan Reformer rGyal-ba Tsoṅ-kha-pa, himself a native of Amdo, was spiritually guided by the Bodhisattva, whose domain is transcendental knowledge.
 
 ...
