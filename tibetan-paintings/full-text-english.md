@@ -784,4 +784,62 @@ Thus in the Saddharma-Puṅḍarīka there is a chapter, where the Exalted One t
 
 5\. Śākyamuni. The Buddha is seen on the very threshold of his spiritual conquest, seated in deep meditation, and attesting with his right hand his will to attain the Supreme Enlightment. In his left hand he holds the alms bowl. Śākyamuni is considered to be the head of the seven Buddha-assistants of Bhaiṣajyaguru.
 
+9\. Mi-'khrugs-pa. He is seen in meditation. The left hand, placed on the lap, is holding a vajra; the right one makes the sign of attestation. The color of the body is blue. The monastic robe is red with golden design.
+
+12\. mTshan-legs rgyal-po. The body is yellow-ochre. The left hand is placed on the lap, the right one makes the sign of fearlessness. The garment is red.
+
+13\. sGra-dbyaṅs rgyal-po. The body is yellow-ochre. The left hand is placed on the lap, the right one makes the sign of charity.
+
+14\. Čhos-sgrags rgya-mtsho. The body is white. The hands make the sign of instruction. The garment is red.
+
+15\. Mya-ṅan-med mčhog-dpal. The body is red. The hands make the sign of instruction. The garment is red.
+
+16\. Mṅon-mkhyen rgyal-po. The left hand makes the sign of meditation; the right one makes the sign of charity. The body is red. The garment is yellow.
+
+17\. gSer-bzaṅ dri-med. The body is yellow. The hands make the sign of instruction. The garment is yellow.
+
+2\. Dhyāni-Buddha Vairocana.
+
+3\. Dhyāni-Buddha Akṣobhya.
+
+4\. Dhyāni-Buddha Ratnasambhava.
+
+6\. Dhyāni-Buddha Amitābha.
+
+7\. Dhyāni-Buddha Amoghasiddhi.
+
+Notice that all the five contemplative Buddhas wear the Bodhisattva attire with the diadem, the uttarīya, and the paridhāna. The Dhyāni-Buddhas are not accompanied by their śaktis or female energies.
+
+8\. The ḍākinī Na-ro mkha-spyod-ma. This ḍākinī is probably a form of Vajravārāhī. She is seen dancing on a prostrate human body, holding the knife gri-gug, the magic sceptre and the cup. The color of her body is bright red.
+
+9\. Mañjughoṣa (Tib. 'Jam-dbyaṅs). The Bodhisattva is seen seated cross-legged, holding, the sword and the lotus flower with the book on it. The color of his body is yellow-ochre.
+
+10\. A fearful form of Vajrapāṇi (Tib. Phyag-na rdo-rje), seen brandishing the thunderbolt. The color of the body is blue. Mañjughoṣa and Vajrapāṇi are almost always represented in the parivāra of the Bodhisattva Avalokiteśvara.
+
+18\. Jambhala. The god of riches. He is holding the conch, and the mungoose vomiting the jewel.
+
+19\. Vajrasattva (Tib. rDo-rje sems-pa). He is seen seated cross-legged, holding the thunderbolt and the bell. His body is white.
+
+This painting is the work of an artist belonging to the local school at Gyangtse which has much in common with the school of Shigatse.
+
+Painting Nr. 17 (18 1/2 x 12 3/4).
+
+This painting represents the same form of the Bodhisattva as the previous one. The Bodhisattva is holding the rosary and the lotus flower. In his hands, joined at the chest, he is holding the jewel.
+
+Above the Bodhisattva are seen (from left lo right): Amitābha with the alms bowl, rGyal-ba Tsoṅ-kha-pa, holding the bowl and the stalks of the lotus flowers on which are placed the sword and the book, and the green Tārā, holding in both hands the stalks of lotuses and making with the right hand the sign of charity.
+
+Below the Bodhisattva are seen the Bodhisattva Mañjuśrī, and Vajrapāṇi.
+
+Painting Nr. 18 (27 3/4 x 21 1/4).
+
+This painting represents again the four-armed form of the Bodhisattva.
+
+In his parivāra we see the five Dhyāni-Buddhas under the form of perfect Buddhas, and the five goddesses guarding the five organs of sense (Skrt. Pañcarakṣā). The painting is very damaged.
+
+Painting Nr. 19 (Pl. 13) (27 3/4 x 17 1/2).
+ 
+The painting represents the Siṃhanāda Lokeśvara (Tib. Spyan-ras-gzigs seṅ-ge-sgra). The artist has faithfully reproduced the Indian prototype, whose śivaïstic character was already mentioned by Mr. James Burgess and Prof. Grünwedel.*
+
+[Number 19. Siṃhanāda-Lokeśvara.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-013.jpeg)
+
 ...
