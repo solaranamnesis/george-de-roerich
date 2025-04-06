@@ -772,4 +772,16 @@ The halo is green with a broad lilac-colored line on the outside. Above it is se
 
 In front of the throne is seen a basket standing on a lotus flower which contains the Wheel of the Law, a musical instrument, a conch, and some fruit. Besides it, on a lotus flower, is seen a figure of a kneeling deva with hands clasped in adoration.
 
+1\. Vaiḍūryaprabhārāja (Tib. sMan-gyi bla be-ḍu-ryai 'od-kyi rgyal-po), the chief of the "Eight healing ones" (Tib. sMan-bla bde-gšegs-brgyad).
+
+The "Healing Buddha," also called Bhaiṣajyaguru, is represented seated in meditation, holding in his left hand, which is resting on his lap, the alms bowl, and with his right hand, which makes the sign of charity, a flower. The color of the body is dark blue. His garment is red, covered with golden embroidery. Bhaiṣajyaguru is widely venerated in China, Mongolia, and Japan. Scenes of his paradise have been discovered by Sir Aurel Stein on the borders of Chinese Turkistan (in the oasis of Tun-huang). In Tibet his cult is extremely popular. He is often met with on lamaistic images together with Gautama, the Buddha, and Amitābha. Those who prayed to Bhaiṣajyaguru or only heard his name will be reborn in Sukhāvatī, the Western Paradise ruled by the Dhyāni-Buddha Amitābha.
+
+Thus in the Saddharma-Puṅḍarīka there is a chapter, where the Exalted One tells to the Bodhisattva Nakṣatrarājasaṅkusumitābhijña the story of the former exertions of the Bodhisattva Bhaiṣajyarāja, who was formerly known under the name of Bodhisattva Sarvasattvapriyadarśana. In this chapter is found the following passage*: "The Exalted One said: Any female, Nakṣatrarājasaṅkusumitābhijña, who in the last five hundreds years of the millennium shall hear and penetrate this chapter of the former exertions of Bhaiṣajyarāja will, after disappearing from earth, be (re)born in the world of Sukhāvatī, where the Lord Amitāyus (another form of Amitābha), the Tathāgata, dwells, exists, lives surrounded by a host of Bodhisattvas."
+
+*) Saddh. Puṅḍarīka, p. 389; for a similar passage see Śikṣāsamuccaya, p. 171.
+ 
+[Number 16. Avalokiteśvara.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-012.jpeg)
+
+5\. Śākyamuni. The Buddha is seen on the very threshold of his spiritual conquest, seated in deep meditation, and attesting with his right hand his will to attain the Supreme Enlightment. In his left hand he holds the alms bowl. Śākyamuni is considered to be the head of the seven Buddha-assistants of Bhaiṣajyaguru.
+
 ...
