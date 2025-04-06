@@ -684,4 +684,90 @@ The spread of Mahāyāna is associated with the name of Maitreya. Fa-hsien, who,
 
 Altogether he made three journeys for observation and afterwards executed an image eighty feet in height, the pedestal of which was eight feet high. On fast days it always shines with a brilliant light. The kings of near countries vie with one another in their offerings to it. From olden times until now it has been on view in this place."
 
+A similar legend is told by Hsüan-tsang in his "Records of the Western Countries."*
+
+*) Hsüan-tsang, Rec., 1, p. 134.
+
+Fa-hsien tells us another interesting legend which explains, perhaps, the extraordinary spread of the cult of the Bodhisattva Maitreya in northern countries, where Buddhism penetrated*: "When I inquired of the people of those parts, they all said that, according to an old tradition, śramanas from India began to bring the Sūtras and Disciplines across this river (the preceding passage describes the crossing of a river) from the date of the setting-up of Maitreya, Bodhisattva. This image was put up about three hundred years after the Nirvāṇa of Buddha, which occured during the reign of king P'ing of the Chou dynasty (770-719 BCE); hence it was said that the Great Doctrine began to spread abroad from the setting up of the image, and that who but our ghostly Master, Maitreya, who is to succeed Śākyamuni, could have caused the Precious Trinity to be preached afar and foreigners to become acquainted with the Faith. " It is not clear from the context whether this last image is identical with the image located in Dārēl. Images of Bodhisattva Maitreya carved in rocks are frequently met with in Western Tibet and along the mountainous pases of the North-West leading towards the great caravan routes of Turkistan.
+
+*) H. A. Giles, Travels of Fa-hsien, p. 10.
+
+Another tradition connects Maitreya directly with the origin of the Mahāyāna school. According to it, the reputed founder of the Yogācāra school of Buddhism, Asaṅga, on several occasions visited the Tuṣita heaven and there, in the presence of the future Buddha, penetrated into the essence of Mahāyāna. In North-Western India, where a good many of the famous doctors of Buddhism lived and preached and from where went the stream of missionaries to the countries beyond the great snowy ranges of the Hindukush and Qaraqorum, the cult of the future Buddha was a very popular one. This is clearly attested by the numerous figures of the Bodhisattva made of grey schist, excavated in the soil of ancient Gandhāra. Prof. Foucher* has studied a number of these images. The Bodhisattva of the Gandhāra school is seen wearing the diadem, attired in a royal fashion, and holding the vessel (Kamaṇḍalu). Often he is seen seated cross-legged and making the sign of instruction. The nāga-puṣpa, common on later images of Maitreya, fails in Gandhāra.
+
+*) A. Foucher, L'art gréco-bouddhique du Gandhāra, vol. 2, pp. 230-236.
+
+[Number 13. Maitreya.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-009.jpeg)
+
+The cult of the Bodhisattva was extremely popular along the two great caravan routes in Chinese Turkistan. Sir Aurel Stein brought from the oasis of Tun-huang a number of paintings representing the parivāra of the Bodhisattva Maitreya. In later iconography several forms of the Bodhisattva are frequently met with. His body is always golden in color and he is often represented (this is the case in Tibet) under the form of a perfect Buddha. In Tibet the Bodhisattva is usually addressed with the title of rGyal-ba or Jina, an epithet always given to a Buddha. The old Gandhāra type, with the hands making the sign of instruction, is very popular in Tibet. The only difference is that behind the Bodhisattva are always seen the two Nāga flowers. When represented in this form, the Bodhisattva often wears the monastic robes of a Buddha. In another form we see the Bodhisattva standing, attired in the garments of a Bodhisattva, wearing on his head the diadem with a small stūpa in it (when the Bodhisattva has no diadem, the stūpa is painted on his forehead). The right hand is making the sign of argumentation or, sometimes, the sign of charity. The left hand is holding the amṛta vessel. In a third form Maitreya is seated, dressed as a Bodhisattva, his hands folded on his lap in the sign of meditation, and holding between his fingers the gullet of the amṛta vessel.
+
+Finally there exists a Tantric form of the Bodhisattva with Kurukullā on his right and Bhṛkuṭī on his left. Professor Foucher has published in his Iconographie Bouddhique* a Maitreya-sādhana, where another form of the Bodhisattva with three faces and four arms is described. In Tibet the Bodhisattva is often represented seated on the throne in a European fashion. This way of sitting is considered to be characteristic of the Bodhisattva and to symbolize the fact that he is ready to come, and has already lowered his legs from the throne.*
+
+*) Fasc. 2, 48.
+
+*) Cf. Introduction, p. 22.
+
+The Bodhisattva Maitreya of our collection (painting Nr. 13) (Pl. 9) (32 x 19 1/4) is represented under the form of a Buddha, seated cross-legged on a lotus throne, his hands making the sign of instruction. The body is golden, the monastic robes are of a red color with golden embroidery on them. The back of the throne is richly ornamented. We see the two nāga-flowers, two nāgas, and the bird Garuḍa on its top. Round it are seen Gandharvas, or heavenly musicians, and nymphs. The painting is the work of a modern artist and is very vivid in colors.
+
+To end this very brief sketch of the future Buddha, as represented in Tibetan iconography, it is suitable to point out the new revival of his cult among the Buddhists of Tibet and Mongolia. Some ten years ago the present Tashi-Lama (dGe-legs rnam-rgyal), rJe-btsun bLo-bzaṅ thub-bstan čhos-kyi ñi-ma dge-legs rnam-rgyal dpal-bzaṅ-po, who recently left Tibet, erected a huge statue of the coming Buddha in the great monastery of Tashi-lhunpo, thus giving a fresh impulse to the cult. Upon the erection of the statue numerous branch-monasteries of Tashi-lhunpo erected in their temples analogical statues of the Coming One and dedicated a special cult to them. It seems that the Buddhist world is preparing to receive the Buddha of the future.
+
+Painting Nr. 14 (Pl. 10) represents the future Buddha Maitreya, assisted by Atīśa and rGyal-ba Tsoṅ-kha-pa. The Bodhisattva is holding the amṛta vessel and makes the sign of argumentation. The Bodhisattva has the appearance of a perfect Buddha. On his forehead he has the stūpa. The painting is executed by a modern artist from Shigatse and is said to represent the Buddha Maitreya of Tashi-lhunpo; hence its interest for the history of modern religious currents in the "Land of Snow."
+
+[Number 14. Maitreya of Tashi-lhunpo.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-010.jpeg)
+
+---
+
+# Avalokiteśvara or Padampāni.
+
+(Tib. Spyan-ras-gzigs or Pyag-na rdo-rje)
+
+He is the greatest Bodhisattva of Northern Buddhism. Having emanated from his spiritual father, the Dhyāni-Buddha Amitābha, the Bodhisattva appeared on earth from a lotus flower for the deliverance of mankind. He refused to attain Buddhahood until all suffering creatures are firmly established on the path towards Bodhi, or higher consciousness. He provides salvation for those suffering in hell and, therefore, he is often represented on images surrounded by pretas or damned ones, who implore him for mercy and blessing. In the Saddharma-Puṅḍarīka we find the following definition of the Bodhisattva's mission in this world, uttered by the Exalted One himself*: "He (Avalokiteśvara) with his powerful knowledge beholds all creatures who are beset with many hundreds of troubles and afflicted by many sorrows, and thereby is a saviour of the world, including the gods." The Bodhisattva was already working for the salvation of mankind in the time of Vipaśyī, Śikhī, Jina, and Śākyamuni. Indeed, it is said that Śākyamuni himself once benefitted by Avalokiteśvara's power of salvation. It is said in the Guṇakāraṇḍa-vyūha, a text wholly dedicated to the praise of the all-embracing mercy of the Bodhisattva, that Gautama, the Buddha, being in one of his previous incarnations Siṃhala, was saved from the island of evil Rākṣasīs on a miraculous horse, which was a manifestation of Avalokiteśvara himself.* Several chapters of the Saddharma-Puṅḍarīka are dedicated to the praise of various Bodhisattvas. In ch. 24, which was already quoted above, we find listed a number of pious merits resulting from cherishing the name of the Bodhisattva. Thus it is said*: "If one be thrown into a pit of fire by a wicked enemy with the object of killing him, he has but to think of Avalokiteśvara, and the fire shall be quenched, as if sprinkled with water." And again in stanza 9, it is said: "If a man be surrounded by a host of enemies armed with swords, who have the intention of killing him, he has but to think of Avalokiteśvara, and they shall instantaneously become kind-hearted."
+
+*) Saddharma-Puṅḍarīka, transl. by H. Kern, p. 415, stanza 17.
+
+*) Rāj. Mitra, The Sanskrit Buddh. Literature of Nepal, p. 95-98.
+
+*) Saddharma-Puṅḍarīka, p. 413, stanza 5.
+
+Among the many names given to the Bodhisattva by the religious fervour of his devotees, the following ones are the most common: Lokanātha or Lokeśvara, "the Lord of the World"; Saṅgharatna, "the Jewel of the Saṅgha"; and Mahākaruṇnika --- "the Great Merciful One."
+
+In plastic art we can already trace the images of Avalokiteśvara among Gandhāra sculptures. Thanks to the works of Prof. Grüwedel, Prof. d'Oldenburg, and Prof. Foucher, we are able to recognize the Merciful Lord in these figures of royal princes (Skrt. rājakumāra), holding the lotus flower, the rosary, and sometimes the amṛta vessel. This two-armed form of the Bodhisattva is only seldom met on later images. In the time of the Chinese pilgrim, Fa-hsien, the cult of Avalokiteśvara was already widely established and the pious pilgrim himself was saved from a shipwreck by the merciful power of the Bodhisattva.* The cult of Avalokiteśvara spread widely north and numerous indeed are the images of the Bodhisattva brought back by European archaeological expeditions from Chinese Turkistan. In China the Bodhisattva is greatly venerated under a feminine form, called Kuan-yin. In Tibet the Bodhisattva is considered to be the spiritual patron of the Lamaïst Church, and the origin of the Tibetan people itself is associated with the name of Avalokiteśvara.
+
+*) H. A. Giles, The travels of Fa-hsien, p. 76-77.
+
+*) Rockhill, Life of Buddha, p. 204.
+
+The Dalai Lama is considered to be an incarnation of the Bodhisattva and bears the title of rGyal-ba rgya-mtsho, an appellation often given to Avalokiteśvara. The pontifical residence in Lha-sa is called Potala, after Mount Potala, the favourite residence of the Bodhisattva in India.
+
+In the parivāra of the Bodhisattva we usually find the Tārās (white and green), Mañjuśrī, the prince of wisdom, and Vajrapāṇi, the wielder of the thunderbolt.* Sometimes we see Bhaiṣajyaguru, the Buddha of medicine, and his seven followers. The color of the Bodhisattva is usually white, although occasionally one finds images on which the body is painted gold or red.
+
+*) Avalokiteśvara, Mañjuśrī, and Vajrapāṇi are called in Tibetan rigs-gsum mgon-po, "the three tutelar Saints."
+
+In this collection there are several paintings representing Avalokiteśvara. Among them there are three representing the four-armed form of the Bodhisattva, one representing his eleven-faced form, one the Lokeśvara-Siṁhanādā, and two representing the Bodhisattva under the form of Amoghapāśa.
+
+[Number 15. Avalokiteśvara.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-011.jpeg)
+
+It is interesting to notice that on all the paintings the uttarīya, or the shawl of the Bodhisattva's attire, is green, and his paridhāna is red with golden embroidery on it.
+
+Painting Nr. 15 (Pl. 11) (20 x 14 1/2).
+
+This painting represents the eleven-faced Avalokiteśvara. Under this particular form the Bodhisattva is called the "Merciful Lord" (Tib. Thugs-rje čhen-po bču-gčig šal). The Bodhisattva is standing on a lotus flower on an island, or mountain surrounded by water. The figure of the Merciful One is seen on the blue background of the nimbus with golden rays. His eleven faces have the following coloring: the first row: green (right), white (middle), red (left); second row: red (right), green (middle), white (left); third row: white (right), red (middle), green (left). Above the third row is seen the biue head of a Religious Protector. Above it, the head of the Dhyāni-Buddha Amitābha. On other representations of the same form of the Merciful One, which we had occasion to study, the coloring of the faces was slightly different. Apparently there is no canonical rule prescribing the use of certain colors.
+
+The color of the Bodhisattva's body is white. He wears the usual Bodhisattva attire. On his shoulders is thrown a shawl (Skrt. uttarīya). The lower part of the body is wrapped in a sort of open skirt which represents the modern Hindu dhoṭi (Skrt. paridhāna). Both the shawl and the paridhāna are richly covered with golden embroidery. The Bodhisattva wears heavy golden earrings, bracelets, and necklaces.
+
+The Bodhisattva has eight hands. The first pair is joined at the chest, holding the jewel of an oval shape. The second pair is holding the lotus flower and the rosary. The third pair is holding the bow and arrow and the wheel. The left hand of the fourth pair is holding the amṛta vessel, the right one makes the sign of charity.
+
+Above the figure is seen the image of the Dhyāni-Buddha Amitābha in a meditative posture, holding the alms bowl.
+
+Painting Nr. 16 (Pl. 12), (25 x 17 1/4).
+
+This painting represents the parivāra of the Bodhisattva Avalokiteśvara with four arms (Tib. Spyan-ras-gzigs phyag-bši-pa).
+
+The Bodhisattva is seen in the middle of the painting, seated cross-legged on a lotus throne (padmāsana). He wears the usual Bodhisattva attire.
+
+On his head we see the diadem with the head of the Dhyāni-Buddha Amitābha. Heavy golden earrings adorn his ears. Round his neck and arms we see golden necklaces and bracelets inlaid with precious stones. His uttarīya is green with golden embroidery. The paridhāna is red with golden design. The Bodhisattva has four arms. In his hands, folded at the chest, he is holding the jewel, on which his eyes are concentrated. The two other hands are holding the rosary and the lotus flowers.
+
+The halo is green with a broad lilac-colored line on the outside. Above it is seen a red flower with a flaming jewel emerging out of it.
+
+In front of the throne is seen a basket standing on a lotus flower which contains the Wheel of the Law, a musical instrument, a conch, and some fruit. Besides it, on a lotus flower, is seen a figure of a kneeling deva with hands clasped in adoration.
+
 ...
