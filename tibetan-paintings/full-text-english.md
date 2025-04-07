@@ -24,9 +24,9 @@
 
 # [Mañjuśrī or Mañjughoṣa.](#mañjuśrī-or-mañjughoṣa-1)
 
-# [Female Deities.]()
+# [Female Deities.](#female-deities-1)
 
-## [Tārā.]()
+## [Tārā.](#tārā-1)
 
 ...
 
