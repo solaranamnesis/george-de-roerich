@@ -916,4 +916,53 @@ Tārā adopts the five sacred colors and her ardent devotee, the Kaśmirian poet
 
 To each Dhyāni-Buddha corresponds an aspect of Tārā with her ritual color:
 
+|     | _Dhyāni-Buddhas._ | _Tārās._            | _Color._        |
+|-----|-----------------|-------------------|---------------|
+| 1\. | Akṣobhya.       | Locanā.           | blue.         |
+| 2\. | Ratnasambhava.  | Māmakī.           | yellow, gold. |
+| 3\. | Vairocana.      | Vajradhātviśvarī. | white.        |
+| 4\. | Amitābha.       | Pāndarā.          | rose.         |
+| 5\. | Amoghasiddhi.   | Tārā.             | green.        |
+
+The green aspect of Tārā is one of the most popular ones. Our collection (painting Nr. 22) (21 1/2 x 15 3/4) possesses a slightly damaged image of the green Tārā, surrounded by the Dhyāni-Buddha Amitābha and the god of riches, Jambhala. She is always seen seated on a lotus throne emerging from the waves of the ocean. Her right hand is making the sign of charity, the left one is holding the flower of the blue lotus, for she is called in stotras "nīlotpalakarā devī." She sits in the royal fashion, the right leg hanging down from the throne. This form of Tārā is regularly met on paintings representing the parivāra of the Bodhisattva Avalokiteśvara.
+
+On the painting representing the maṇḍala of Amoghapāśa-Lokeśvara, which was described above, we remember having seen this aspect of Tārā, as saviouress from the eight perils of this world.
+
+Painting Nr. 23 (15 1/2 x 10) represents the white aspect of Tārā. The goddess is sitting on a lotus throne, making the sign of charity with her right hand. She is holding a flower.
+
+Tārā is greatly venerated in Tibet. The two queens of the famous Sroṅ-btsan sgam-po were considered, as we have already said in our introduction, as incarnations of Tārā. The Nepal princess is Tārā under green aspect, and the Chinese imperial princess is Tārā under her white form.
+
+## Sitātapatrāparajitā.
+
+The goddess Sitātapatrāparajitā (Tib. bČom-ldan gDugs-dkar) must be considered as an aspect of Tārā corresponding to the manifestation of the Bodhisattva Avalokiteśvara, called "the White umbrella Lord."
+
+This collection possesses a remarkable painting (Nr. 24) (29 x 19 1/2) of the goddess surrounded by different manifestations of Tārā. The goddess is represented with thousand heads and thousand hands. This particular form of the goddess is known under the name of Uṣṇīṣa-Sitātapatrāparajitā (Tib. gTsug-tor gDugs-dkar), and the prayer translated below is addressed to this form of the goddess. Her color is white, and her many heads are successively red, yellow, white, green, and red. Images of innumerable eyes cover her body, as symbols of her omnipresence. In her two hands joined at the chest she is holding the Wheel of the Law, the white umbrella and an arrow. She wears heavy golden ornaments. Her skirt is of a red color with golden embroidery, the shawl thrown on her shoulders is green with golden design. In the crown of her diadem she wears the image of the thousand Tathāgatas, for she is styled in songs and prayers the "Mother of all the jinas" (Tib. rGyal-yum), a title often given to Tārā. She is standing on a kind of mat, stamping two crowds of damned ones, driven away by fantastic animals.
+
+The prayer translated here is said to have been composed by rGyal-ba Tsoṅ kha-pa, who is reputed as having composed numerous prayers and psalms in honour of the different deities.
+
+"To the seven millions of Jinas, to the assembly of arhats, to all the rṣis learned in mantras, to Brahma and Indra, to Mahādeva and Nārāyaṇa, to Legs-ldan nag-po gduṅ-bdun, to the ten Sugatas, and to all the worshipful ones, I bow in salutation. From the crown of the head of the Sugata emerged the word of incantation by which we sing praise to the holy gDugs-dkar, commanding a large retinue"
+
+"Her, who is well-born from the most excellent uṣṇīṣa of the Lord of Śākyas, dwelling in the holy world of gods, who is invincible by the knowledge of demons, who expels all the enemies, we call the Uṣṇīṣa-Sitātapatrā, the unconquerable by others."
+
+"I salute you, the Exalted One, the only mother of all the Jinas of the past, present, and future, you who entirely penetrate the three worlds with your glory."
+
+"I salute you, the Saviouress from the evil influence of demons and planets, from untimely death and evil dreams, from the dangers of poison, arms, fire and water. The maṇḍala of your being is extremely large. You have a thousand heads full of innumerable thoughts, thousand hands holding flaming altributes."
+
+"The queen of all the maṇḍalas of the three worlds, assisted by twenty-two terrible mudrās, the ever-present in the work of taming the evil ones, I salute you, goddess of charms, turning the demons into dust."
+
+"I take my refuge in you from fear of untimely death, of disease, from fear 
+of men and demons. I implore you to protect me eternally from all fears."
+
+"I implore you, only by remembering your feet, to free me from devas, nāgas, asuras, demons, and evil ones who steal brightness, snatch a child from the womb, and partake of flesh and blood."
+
+"Through whatever door the thieves may come in and deprive us of our well-being, --- destroy them, and strike them with the flaming dagger."
+
+"In short, having taken my refuge in you, the Exalted One, assisted by different mudrās, having pronounced my prayer, and dwelling reconciled, may all my wishes be fulfilled."
+
+"You, the goddess gDugs-dkar, born from the crown of the head of the Sugata, who crushes into dust the assemblage of demons and evil spirits, may you, the Exalted One possessed of wonderful brightness, expand the Doctrine. May we receive the blessing of the bDe-mčhog gDugs-dkar, who is born from the uṣṇīṣa of the Merciful Sugata, who destroys those who hinder the blissful Law, the giver of the fruits of happiness."
+
+Let us now consider the deities forming the parivāra of the goddess:
+
+1\. Śākyamuni. The Exalted One is holding the alms bowl on his lap and makes the sign of attestation.
+
 ...
