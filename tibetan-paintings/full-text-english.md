@@ -28,7 +28,7 @@
 
 ## [Tārā.](#tārā-1)
 
-## [Sitātapatrāparajitā.]()
+## [Sitātapatrāparajitā.](#sitātapatrāparajitā-1)
 
 ...
 
