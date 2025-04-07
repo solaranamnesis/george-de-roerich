@@ -870,4 +870,20 @@ To end our brief sketch of Bodhisattvas honoured by the Buddhist of the Mahāyā
 
 His chief sanctuary is located in China, in the Shan-si province, on the mountain with the five peaks (Chin. Wu-t'ai-shan; Tib. Ri-bo rtse-lṅa; Skrt. Pañcaśīrṣaparvata). From there he is said to have visited on several occasions the region of Nepal, and is regarded as its virtual creator. The cult of Mañjuśrī of Wu-t'ai-shan is known in Tibet, and the Chinese pilgrim I-tsing, who visited India in the 7th century CE, records the fact that the Wu-t'ai-shan sanctuary was known in the India of his time.* The cult of Mañjuśrī is especially popular in the eastern parts of Tibet and the great Tibetan Reformer rGyal-ba Tsoṅ-kha-pa, himself a native of Amdo, was spiritually guided by the Bodhisattva, whose domain is transcendental knowledge.
 
+Numerous are the legends relating the story of famous doctors being instructed by the Bodhisattva. In one of such legends it is said that a pandit from Benares, called Dharmaśrī Mitra, who dwelled in the monastery of Vikramaśīla, possessed of deep knowledge, was unable to explain the mysterious meaning of a certain sacred formula. The learned pandit decided to visit the Bodhisattva Mañjuśrī who possessed the required explanation. The journey had to be a very long one --- a year of travelling to the North of the Himālayas. The pandit chose the way leading through Nepal. On his way he saw a peasant who was ploughing his field with a plough to which were yoked a lion and a tiger. The learned man questioned the strange peasant about the route to China, and the ploughman replied: "It is too late to-day to continue your journey; spend the night at my home." Dharmaśrī followed his advice and went with him. Suddenly the plough disappeared and, as by miracle, a spacious monastery emerged from the ground. During the night spent in the monastery Dharmaśrī understood that the Bodhisattva himself was his host, and in the morning asked for the explanation of the mysterious formula, which was given to him.*
+
+*) Prof. S. Lévi, Le Nepal, 1, p. 334.
+
+This legend strikingly resembles in its character the numerous stories belonging to the cycle of Saint Nicolas so popular in Russia.
+
+The following forms are frequently met on Tibetan paintings:
+
+Mañjughoṣa. The Bodhisattva sits cross-legged on a lotus-throne. He wears the usual Bodhisattva attire. His body is yellow-ochre. With his right hand he is brandishing the flaming sword, and with his left hand he is holding the blue lotus on which is placed the book, symbol of his deep knowledge. Notice that the rGyal-ba Tsoṅ-kha-pa, his spiritual pupil, is always represented on images wilh the same two attributes usually placed on two lotus flowers behind him.
+
+The Bodhisattva known under the name of 'Jam-dbyaṅs dkar-po is seen seated cross-legged on a lotus throne. The right hand makes the sign of charity, the left one the sign of argumentation. Behind him are seen the two blue lotuses supporting the sword and the book.
+
+Another form of the Bodhisattva (Tib. 'Jam-dbyaṅs dmar-ser) has the red-yellow color of the body. The lotus flowers are absent. The Bodhisattva is brandishing the sword with his right arm, and is holding the book in his left hand, which is placed in front of the chest.
+
+As Siṁhanāda-Mañjuśrī (Tib. 'Jam-dpal sgra (smra)-seṅ), he is seen seated on a lotus throne placed on the back of a lion. He wears the Bodhisattva attire. The left foot is lowered. The Bodhisattva is brandishing the sword and holding the lotus flower with the book. On some images he is seen making the sign of instruction. In this form his śakti, Sarasvatī, is often associated with him.
+
 ...
