@@ -24,6 +24,10 @@
 
 # [Mañjuśrī or Mañjughoṣa.](#mañjuśrī-or-mañjughoṣa-1)
 
+# [Female Deities.]()
+
+## [Tārā.]()
+
 ...
 
 ---
@@ -885,5 +889,31 @@ The Bodhisattva known under the name of 'Jam-dbyaṅs dkar-po is seen seated cro
 Another form of the Bodhisattva (Tib. 'Jam-dbyaṅs dmar-ser) has the red-yellow color of the body. The lotus flowers are absent. The Bodhisattva is brandishing the sword with his right arm, and is holding the book in his left hand, which is placed in front of the chest.
 
 As Siṁhanāda-Mañjuśrī (Tib. 'Jam-dpal sgra (smra)-seṅ), he is seen seated on a lotus throne placed on the back of a lion. He wears the Bodhisattva attire. The left foot is lowered. The Bodhisattva is brandishing the sword and holding the lotus flower with the book. On some images he is seen making the sign of instruction. In this form his śakti, Sarasvatī, is often associated with him.
+
+When represented as Mañjuśrī-Jñānasattva (Tib. 'Jam-dpal ye-śes sems-pa), the Bodhisattva is seen seated cross-legged, attired in the usual Bodhisattva fashion. He has four hands holding the sword, the arrow, the lotus with the book, and the bow.
+
+Beside these forms a Tantric form: with three heads and eight arms is known under the name of Dharmadhātu Vāgīśvara (Tib. Čhos-dbyiṅs gsuṅs-dbaṅ). His attributes are the sword, the arrow, the thunderbolt, the book, the bow and the bell.
+
+We have already seen that the Yi-dam Yamāntaka is a Tantric form of the Bodhisattva. One of his epithets is Kumāra, royal prince, and it is very probable that the primitive form of the Bodhisattva was a royal prince holding the lotus flower.* Under this form his colour is green. Many outstanding persons in the history of Tibet were considered to be incarnations of the Bodhisattva, among them Thon-mi Sambhota, the inventor of the Tibetan alphabet, and king Khri-sroṅ lde-btsan, the royal patron of Padmasambhava.
+
+*) Prof. Grünwedel, Mythologie, p. 142.
+
+---
+
+# Female Deities.
+
+## Tārā.
+
+Tārā, the Merciful One, is born from a tear of the Bodhisattva Avalokiteśvara, the Merciful Lord. She symbolizes compassion and guides the travellers across the infinite ocean of transmigrations. She is Tārā, the brilliant one, the star that guides the navigator on his voyage. Together with Avalokiteśvara she is the protector of mankind, and when invoked saves people from multitudes of dangers. She is the Princess Bhaṭṭārikā, and as such wears the princely attire of a Bodhisattva. Her favourite residence is Mount Potala, from whose heights she looks over the suffering of this world.
+
+Tārā is the principal feminine deity of Buddhism of later days. With the spreading of śivaïstic influences among Buddhists, numerous other goddesses of the Hindu pantheon were admitted into the religious system of the Mahāyāna; and, with the advent of a strong current of religious syncretism, they were proclaimed to be different aspects of Tārā, the Saviouress. Under the influence of pious adoration, her character gradually transformed itself and she assumed the aspect of a Goddess-Mother, the "Mother of all the jinas" (Tib. rGyal-yum), as she is addressed in prayers and songs composed in her honour.
+
+The Buddhist iconography of Tibet knows twenty-one forms of Tārā.
+
+Tārā adopts the five sacred colors and her ardent devotee, the Kaśmirian poet Sarvajñamitra, tells us that the merciful goddess can be seen red as the sun, blue as the sapphire, white as the foam of the ocean, or brilliant as the sparkling of gold. And the same poet sings in the ecstasy of his devotion: Thy universal form is similar to the crystal which becomes transformed in its aspects when things round it are changed.*
+
+*) De Blonay, Matériaux pour servir à l'histoire de la déesse bouddhique Tārā, p. 39 and 46, stanza 33.
+
+To each Dhyāni-Buddha corresponds an aspect of Tārā with her ritual color:
 
 ...
