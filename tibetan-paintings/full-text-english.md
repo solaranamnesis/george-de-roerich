@@ -30,7 +30,7 @@
 
 ## [Sitātapatrāparajitā.](#sitātapatrāparajitā-1)
 
-# [Padmasambhava.]()
+# [Padmasambhava.](#padmasambhava-1)
 
 ...
 
