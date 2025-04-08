@@ -966,4 +966,66 @@ Let us now consider the deities forming the parivāra of the goddess:
 
 1\. Śākyamuni. The Exalted One is holding the alms bowl on his lap and makes the sign of attestation.
 
+2\. and 3. The Bodhisattva Avalokiteśvara in his four-armed aspect. The Bodhisattva's (2) body is colored in yellow; he is holding the rosary and the book. Two hands are joined at the chest making the sign of instruction. The Bodhisattva (3) is white and is holding the rosary, the lotus flower, and the jewel.
+
+4\. 5. 6. 7. and 8. represent the five goddesses protecting the five senses, called in Sanskrit Mahārakṣā or Pañcarakṣā (Tib. gČan-rim-pa lṅa). These five goddesses are rarely met on lamaistic images. Their cult is very popular in Nepal, where their dhāraṇīs are widely read.*
+
+*) Prof. S. Lévi, Le Nepal, vol. 2, p. 295.
+
+It is difficult to distinguish the goddesses, for they often change their color and multiply their hands and attributes, a fact already noticed by Prof. Foucher in his Etude sur l'Iconographie Bouddhique, part 2, p. 100. Their usual order is as follows:
+
+Mahāpratisarā, protects against sin, illness, and other dangers.
+
+Mahāsahasrapramārdinī, protects against evil spirits.
+
+Mahāmāyūrī, protects against the poison of venomous snakes.
+
+Mahāśītavatī, protects against the evil influences of planets, wild animals and poisonous insects.
+
+Mahā(rakṣā)mantrānusāriṇī, protects against illness.*
+
+*) Winternitz, Geschichte der Indischen Litteratur vol. 2, p. 271.
+
+It is difficult to say what is the order on our painting, but it seems that the Mahāsahasrapramārdinī is regarded as the first goddess of the series.
+
+4\. Mahāsahasrapramārdinī (Tib. sToṅ-čhen-po rab-tu 'joms-ma; sToṅ-čhen-mo). Our image accurately corresponds to the short description of the goddess given by Rājendrālal Mitra in his Sanskrit Buddhist Literature of Nepal*: "A fierce goddess with exposed teeth, blue of colour, seated on two crouching men of yellow color. The heads are sucessively white, blue, red, and yellow." The goddess wears the crown of human skulls and has a tiger skin round her waist. The hair is dishevelled. She has eight arms. One pair is joined at the chest, holding the quadruple thunderbolt and the lasso. The other hands are holding the flaming sword, the bow and arrow, the trident, the lotus flower and the axe. In the sādhana published by Professor Foucher,* the color of the goddess is said to be white, with only one head and six arms. On the same page Prof. Foucher mentions a blue form of the goddess.
+
+*) P. 167.
+
+*) Etude, fasc. 2, p. 100.
+
+5\. Mahā(rakṣā)mantrānusāriṇī (Tib. gSaṅ-sṅags čhen-po rjes-su 'dsin-mo; gSan-sṅags chne-mo). The color of the goddess is green. The heads are successively white, green, and red. She wears the diadem and is seated cross-legged on a lotus throne. In her six hands she is holding the bow and arrow, the lasso, the banner, the thunderbolt and the bell. Notice that the first pair of hands, holding the vajra and the bell, is in the attitude of Vajrasattva. Professor Foucher mentions a red form of the goddess.*
+
+*) Ibid., p. 100.
+
+6\. Mahāpratisarā (Tib. So-sor 'braṅ-ma).* The goddess has four heads and eight arms. She is seated on a lotus throne. Her color is pure white, and her heads are successively yellow, white, red, and green.* The goddess wears the diadem. In her hands she is holding the flaming sword, the bow and arrow, the thunderbolt, the axe, the trident; the two hands joined at the chest are holding the wheel and the lasso.
+
+*) In his Mythologie des Buddhismus in Tibet und der Mongolei, p. 148, Prof. Grünwedel gives the Tibetan name as corresponding lo the Skrt. Āryajāñgulītāra, which designates an assistant of the green Tara.
+
+*) Rāj. Mitra, ibid., p. 169.
+
+7\. Mahāśītavatī (Tib. bSil-ba'i tshal čhen-mo). The goddess has three heads and eight arms. The color of the body is yellow. The heads are successively white, yellow and red. She is holding the following attributes: the flaming sword, the lotus flower, the banner, the quadruple thunderbolt and the peacock's feather. One hand is making the sign of charity, another is holding an alms bowl, inside of which is the head of a Buddha. Another hand is holding an earring. Professor Foucher* has edited a Mahāśītavatī-sādhana in which the goddess is described as being red in color, with four arms, and only one head.
+
+*) A. Foucher, ibid., p. 99.
+
+8\. Mahāmāyūrī (Tib. rMa-bya čhen-mo). The goddess is seated cross-legged on a lotus throne. Her color is red. Her four heads are successively white, red, green and blue. She has twelve hands which are holding the thunderbolt, the arrow, the crescent, the peacock's feather, the book, the lotus and the lasso. Two hands are folded on the lap, holding a bowl containing the head of a Buddha. Another pair is joined, making the sign of instruction. Prof Foucher* mentions a yellow and green form of the goddess.*
+
+*) Foucher, ibid., p. 100.
+
+*) On the cult of the goddess in China and Japan, see the article of W. De Visser, Die Pfauen königin, Festschrift für Friedrich Hirth, Berlin, 1920, pp. 370-387.
+
+9\. Parṇaśavarī (Tib. Lo-ma gyon-ma). The goddess is seen kneeling on a lotus throne. Her color is yellow. Her three heads are successively white, yellow and red. In sādhanas she is described as having a smiling face. In her six hands she is holding the axe, the bow and arrow, the thunderbolt, the flower, the lasso. Notice the unusual garment of leaves round her waist.
+
+10\. Mārīcī (Tib. 'Od-zer čan-ma). The goddess is represented under the form of Vajravārāhī. Her name seems to be derived from the Skrt. marīci, "ray of light," and the goddess herself must be a personification of dawn.* In Tibetan monasteries she is invoked at sunrise.
+
+*) A. Foucher, ibid., fasc. 1, p. 146.
+
+The goddess is the śakti of Hayagrīva, and is often represented in the parivāra and maṇḍala of Amoghapāśa-Lokeśvara. On our painting she is represented standing on a lotus throne drawn by a number of wild boars. Her color is yellow. She has three faces; one is red, the other is yellow, the third is that of a boar. She has eight arms and is seen shooting the bow. Besides the bow and arrow, she is holding the lasso, the aṅkuśa, the thunderbolt and what seems to be a dagger. A similar representation of the goddess is found on a stone stele from Magadha, now in the Calcutta Museum.*
+
+There exists also a benign form of the goddess. In this form her right hand makes the sign of charity, and the left one is holding the lotus flower.
+
+11\. Kurukulle or Kurukullā (Tib. Ku-ru-ku-le or Rig-byed-ma). She is a goddess of riches and an assistant of Kuvera.* She is thought to be the śakti of Kāmadeva, the god of love, and possibly represents a Buddhist counterpart of the Hindu goddess Rati.
+
+On our image she is seen dancing on the body of the demon Rāhu. Her body is red. She wears the crown of human skulls, her hair being dishevelled. Round her waist she has a tiger skin, and a garland of severed human heads is hanging on her shoulders. She has four arms. She is seen shooting the bow and holding the hook and the flower.
+
 ...
