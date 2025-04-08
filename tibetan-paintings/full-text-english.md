@@ -952,8 +952,7 @@ The prayer translated here is said to have been composed by rGyal-ba Tsoṅ kha-
 
 "The queen of all the maṇḍalas of the three worlds, assisted by twenty-two terrible mudrās, the ever-present in the work of taming the evil ones, I salute you, goddess of charms, turning the demons into dust."
 
-"I take my refuge in you from fear of untimely death, of disease, from fear 
-of men and demons. I implore you to protect me eternally from all fears."
+"I take my refuge in you from fear of untimely death, of disease, from fear of men and demons. I implore you to protect me eternally from all fears."
 
 "I implore you, only by remembering your feet, to free me from devas, nāgas, asuras, demons, and evil ones who steal brightness, snatch a child from the womb, and partake of flesh and blood."
 
