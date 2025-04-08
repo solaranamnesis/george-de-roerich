@@ -1054,4 +1054,104 @@ On painting Nr. 25 (26 1/4 x 18), she is represented standing on two prostrate h
 
 # Padmasambhava.
 
+In our introduction we briefly stated the legendary origin of Padmasambhava, his mission to Tibet and his missionary work in the "Land of Snow." In this chapter we shall occupy ourselves with an iconographical description of the four paintings of this collection representing the teacher himself and his paradise. The type of the teacher from Oḍḍiyāna is firmly established in Tibetan iconography. He always appears on lamaïstic images wearing his peculiar garment, which he himself called Za-hor-ma. In the gSol-'debs li'u-bdun-ma (p. 5 of the Tibetan text), a rÑiṅ-ma prayer book in seven chapters, we find the following short description of the appearance of the founder of the Red-cap sect in Tibet, which has a certain iconographical value and faithfully corresponds to the images of the teacher found on our paintings:
+
+"He (Padmasambhava) appears in heaven on a background of five colors. He is sitting on a lion throne whose surface is similar to two moon-like lotuses. He has accumulated in himself the three bodies of a Jina, and because of his origin he is called the 'Lotus-born' teacher (Padmasambhava). His complexion is fair, and he manifests himself in a benign and fierce form. He wears the mitre-shaped hat (Tib. pad-šva) and a religious robe, made of silk and red-brown woolen cloth. With his right hand he holds the five-pointed thunderbolt. In his left he has the amṛta vessel. With his left elbow he is supporting the magical sceptre. He is sitting cross-legged, perfectly still. From the maṇḍala of his body, speech, and thought, emanates the fiery way of the brilliant assembly of all the wise protectors of the triple Law. His manifestation should be represented as such."
+
+Such is the orthodox image of the teacher prescribed for use in meditations and conjurations performed by the Tantric schools of Tibet.
+
+Painting Nr. 26 (Pl. 15), (22 1/2 x 16).
+
+On this painting, we see the Teacher in the middle, seated cross-legged on a lotus throne. His under-garment is green with golden design; the outer one is red and golden. He also wears a heavy red-brown mantle.
+
+The image corresponds to the description given in the prayer translated above. Notice, however, that the amṛta vessel is placed on the cup made of a human skull. Round the central figure, are seen:
+
+1\. A Tantric form of the Dhyāni-Buddha Akṣobhya with his śakti (Tib. Mi-bskyod-pa yab-yum). We have already mentioned (p. 42) that in this form the Dhyāni-Buddhas wear the diadem and the Bodhisattva attire.
+
+2\. The Mahāsiddha Lūi-pa. The Mahāsiddha is seen seated cross-legged on a kind of mat, holding a fish. The costume of a mahāsiddha (Tib. Grub-čhen) consists of a kind of paridhāna worn round the waist, and of the usual "meditation rope" (Tib. sGom-thag), a kind of bandage worn across the body, which keeps the legs tied to the body. A shawl is thrown on the shoulders. The hair is tied on the crown of the head (Skrt. jaṭā; Tib. lčaṅ-lo).
+
+3\. The Mahāsiddha To-lo-pa. The saint is holding the cup made of a human skull.
+
+4\. rJe-btsün Mar-pa, the leacher of Mi-la-ras-pa. The saint is holding the cup made of a human skull.
+
+5\. rJe-btsün Mi-la-ras-pa. The famous ascetic-poet of Tibet, who converted people by singing songs of his own composition, and which are incorporated in a collection called Mi-la-ras-pa'i mgur-'bum. The songs of this saint often are of great beauty and full of deep religious feeling. The life of this extraordinary man is related in a rNam-thar or story-book, composed by the pious ardour of his pupils.
+
+Mi-la-ras-pa can be recognized on images by his peculiar pose. He is always seen listening to something, his right hand raised to his ear. In his left hand he is holding the cup made of a human skull.
+
+6\. The Mahāsiddha Saraha, also called Rāhulabhadra. He is reputed to have been the teacher of the great Nāgārjuna at Nālanda. His attribute is an arrow (Skrt. śara). He appeared to rGyal-ba Tsoṅ-kha-pa when the great Reformer was meditating in the mountains of Amdo. Tsoṅ-kha-pa is sometimes said to be an incarnation of Saraha.
+
+7\. A personage attired in the dress of a lama and holding the stalks of two flowers, which support a sword and a book. Name unknown.
+
+8\. Rigs-'dsin 'ja-mtshon sniṅ-po. The saint is holding the magic dagger, and is brandishing the thunderbolt with his right hand.
+
+9\. Probably kLoṅ-čhen rab-'byams pa. The saint is holding the stalks of two lotus flowers with the sword and the book.
+
+10\. gTer-ston 'jigs-med gliṅ-pa. The saint is seated in meditation holding the amṛta vessel.
+
+11\. A form of Ekajaṭī (Tib. Ral-gčig-ma) with one eye. The goddess is seen standing on the prostrate body of a woman. She wears the garland and the crown of skulls. In her right hand she is brandishing a human body, in her left hand --- that of an animal.
+
+12\. Dam-čan mgar-ba nag-po. This deity is a form of Dam-čan rdo-rje-legs, and belongs to the old religion of Tibet. According to the Padma-thaṅ-yig, the teacher Padmasambhava subdued the god and made him serve the cause of the new religion. The god is seen riding a goat. The body of the god is blue. His under-garment is red. He is brandishing a club crowned with a quadruple thunderbolt.
+
+13\. The demon Rhāu (Tib. Khyab-'jug or gZa-mčhog Rāhula). Cf. p. 46.
+
+This painting is the work of a Lha-sa artist. Notice the slight coloring of the background and the peculiar way of painting the clouds which is a characteristic of the local school at Lhasa.
+
+Painting Nr. 27 (28 3/4 x 20 1/2).
+
+This painting is extremely curious in its style and composition. It represents the miracles of Padmasambhava.
+
+Padmasambhava himself is represented in the middle of the painting, seated cross-legged on a lotus throne and brandishing the thunderbolt with his right hand. With his left hand he is holding the magic sceptre and the cup representing the great magical performances of the Tantric teacher. On the top of the painting we see Padmasambhava in his mystical form, seated in deep meditation, his hands folded on his lap.
+
+In the corner, he is seen flying through the air above mountains and clouds. A little lower the Teacher is seen conjuring a serpent. Notice the costume of the magician, bearing the signs and symbols of great magical ceremonies.
+
+Still lower, the teacher is seen talking to a mountain spirit. On the lower corners of the painting, we see Padmasambhava emerging from a subterranean cave, and stopping the wind with his outstretched hand.
+
+He is also seen subduing a tiger, conjuring demons, meditating, assisted by ḍākiṇīs, and making libations from his cup.
+
+The painting is dark in colors, and unfortunately damaged.
+
+Painting Nr. 28 (Pl. 16) (22 1/2 x 16).
+
+This painting represents the paradise of Padmasambhava (Tib. Zaṅs-mdog dpal-ri). In the middle of the painting we see a four-storied building of a distinctly Chinese style. A high wall encircles it. The whole structure is situated on a rocky island.
+
+In the gSol-'debs li'u-bdun-ma (pp. 15 v.-16 v.) we find the following description of the paradise, which well corresponds to our painting:
+
+"The holy mountain of Zaṅs-mdog (copper-color) has the shape of the heart. Its base is set in the realm of the king of nāgas, its middle part shines in the domain of the ḍākiṇīs, and its summit reaches the world of Brahma (Brahmaloka)."
+
+"The eastern side of the glaring summit of the holy mountain has the color of crystal (white), the southern side is blue (vaiḍūrya), the western side is red, and the northern is green. The palace is clearly seen from the outside and the inside. It has four sides and eight corners. Its top and lower part are adorned with precious stones. There is a courtyard and four kinds of enclosures of different colors corresponding to the four kinds of deeds.* The walls are made of brick. The balconies are ornamented with five kinds of jewels. The  archways of the four gates are beautifully ornamented with different kinds of precious stones and all the religious symbols. There are wishing-trees, and fountains of amṛta. Rainbows of five colors gather like clouds from the outside and inside."
+
+*) In Tibetan Buddhism to each deed corresponds a color. Ex. the exercise of power = red.
+
+"The atmosphere is filled with the light of lotus flowers."
+
+"One obtains great bliss by the mere remembrance of this place."
+
+"Inside the palace there is a throne with eight corners, adorned with  precious jewels. On the stalk of the blossoming and undefiled lotus sits Padmasambhava, who has accumulated in himself all the Sugatas. According to his decision, he shows himself benign or charitable, powerful or fierce. Although his body and color, his attributes and ornaments are only visional, his brightness is greater than the light emanated from a thousand suns. His brightness is higher than the mountain itself. The world is fully penetrated by this 'incarnation of the heart' (Padmasambhava). The veins of his eyes look round like the sun and moon."
+
+[Number 28. Zaṅs-mdog dpal-ri.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-016.jpeg)
+
+"The actions of the Merciful One are swifter than the lightning of the sky. His thoughts are deep as the depth of heavens. Because of his compassion for the living beings, he labours for the sake of the world. He has a smiling face of beautiful appearance. The sound of his voice is similar to the roar of a thousand thunders. The place is filled with the sound: ri, ri, ri, due to the reciting of the deep mantras."
+
+"On the four sides and on the eight corners of the 'Great Incarnation' (Padmasambhava) the five kinds of Sugatas, subduing the fierce demons and performing the four kinds of deeds, are seated on thrones, which are erected on crouching demons. On thrones of lotus flowers, with four petals and four sides, are seated demons and ḍākiṇīs adorned with all the necromantic attributes, who pass their time in enjoyment, adorned with beautiful ornaments. The four-sided court-yard of the palace and the encircling walls are full of ḍākiṇīs. Gods and goddesses are gathered in multitudes, like clouds. They perform different kinds of Tantric offerings from the outside and the inside. On the balconies of the precious palace the sacrificing deities are gathered like clouds. The world is filled with the offering of the six kinds of earthly good and pleasures. They honour the Sugata with offerings to the Bodhisattva Samantabhadra. At the four gates of the palace are seen the four king-guardians, who are assisted by the eight classes of deities, slaves, and messengers, and are crushing the demons and the heretics into dust. Hūm!"
+
+The teacher Padmasambhava is seated on a lotus throne inside the courtyard. He his holding the thunderbolt, the cup made of a human skull, and the magic sceptre. His attire is similar to his other images, already described. Above him is seen the figure of the Bodhisattva Avalokiteśvara with four arms, and that of the Dhyāni-Buddha Amitābha, whose spiritual son is Padmasambhava. On both sides of the throne of Padmasambhava are seen his two great women disciples, the Princess Mandārava (1) and mKha-'gro ye-śes mtsho-rgyal, presenting the teacher with cups made of human skulls. Round the throne of Padmasambhva are seen the eight gurus, previous incarnations of the teacher from Oḍḍiyāna.
+
+3\. Guru mTsho-skyes rdo-rje. The guru is represented with his śakti. His body is blue, the śakti is white. He wears the attire of a Bodhisattva. In his right hand he has the thunderbolt, in his left hand he is holding the bell. The śakti is holding the cup made of a human skull.
+
+4\. Padma rgyal-po. The guru is sitting cross-legged on a kind of mat, holding in his left hand a basket with fruit.
+
+5\. Śākyasiṃha. Padmasambhava is said to be an incarnation of the Buddha. The Exalted One is seen sitting in meditation. His right hand is making the sign of attestation, his left one is holding the alms-bowl.
+
+6\. Seṅ-ge sgra-sgrogs. This guru has the appearance of a yi-dam. He is brandishing the thunderbolt. His body is blue and he is seen wearing the tiger skin and the garland of severed human heads. He is standing on a prostrate human body.
+
+7\. rDo-rje gro-lod. The guru is riding a tiger, brandishing the thunderbolt and a flaming magic dagger.
+
+8\. Ñi-ma 'od-zer. The guru is holding the magic sceptre, and wears the crown of skulls.
+
+9\. bLo-ldan phyogs-sred. The guru is sitting cross-legged, holding the wheel and the drum.
+
+10\. Padmasambhava. The teacher is holding the thunderbolt, the cup and the magic sceptre.
+
+In front of the four gates of the outside wall are seen the four king-guardians. Outside the wall we see:
+
 ...
