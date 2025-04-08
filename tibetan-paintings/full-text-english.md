@@ -1022,10 +1022,34 @@ It is difficult to say what is the order on our painting, but it seems that the 
 
 The goddess is the śakti of Hayagrīva, and is often represented in the parivāra and maṇḍala of Amoghapāśa-Lokeśvara. On our painting she is represented standing on a lotus throne drawn by a number of wild boars. Her color is yellow. She has three faces; one is red, the other is yellow, the third is that of a boar. She has eight arms and is seen shooting the bow. Besides the bow and arrow, she is holding the lasso, the aṅkuśa, the thunderbolt and what seems to be a dagger. A similar representation of the goddess is found on a stone stele from Magadha, now in the Calcutta Museum.*
 
+*) A. Foucher, ibid., fasc. 1, fig. 27.
+
 There exists also a benign form of the goddess. In this form her right hand makes the sign of charity, and the left one is holding the lotus flower.
 
 11\. Kurukulle or Kurukullā (Tib. Ku-ru-ku-le or Rig-byed-ma). She is a goddess of riches and an assistant of Kuvera.* She is thought to be the śakti of Kāmadeva, the god of love, and possibly represents a Buddhist counterpart of the Hindu goddess Rati.
 
+*) Prof. Grünwedel, Mythologie, p. 154.
+
 On our image she is seen dancing on the body of the demon Rāhu. Her body is red. She wears the crown of human skulls, her hair being dishevelled. Round her waist she has a tiger skin, and a garland of severed human heads is hanging on her shoulders. She has four arms. She is seen shooting the bow and holding the hook and the flower.
+
+12\. 14. and 16. Represent three forms of Yama called in Tib. Legs-ldan mčhed-gsum, or the "Three noble brothers." The god is dancing on prostrate human bodies. His body is blue. He wears the tiger skin round his waist and the garland of human heads on his shoulders. He is brandishing the gri-gug knife and holding the club and the cup. On his head he wears the crown of human skulls.
+
+13\. Represents a Tantric form of Kuvera, the god of riches. The god is seen standing on human bodies. The color of his body is red and his three heads are successively white, red and yellow. He has six hands, holding the hook, the axe and the lasso. One hand is making the sign of charity, two others are holding two mungoose vomiting the jewel.
+
+15\. Vasudhārā (Tib. Lha-mo Nor-rgyun-ma). She is the goddess of abundance and the śakti of Jambhala-Kuvera. On our painting she is represented as having six hands which hold the fruit, the jewel, the book, the vase and an ear of corn. Her color is yellow. She is seated in the royal fashion, one hand making the sign of fearlessness.*
+
+*) A. Foucher, Etude, p. 84.
+
+To end this chapter on feminine deities of the Buddhist Pantheon represented in the collection, we shall mention the goddess Uṣṇīṣavijayā (Tib. gTsug-tor rnam-par rgyal-ma). An image of the goddess can be seen on painting Nr. 3 of this collection. The cult of this goddess is extremely popular. Usually she is seen seated cross-legged on a lotus throne. Her color is white, her three heads are successively yellow, white and blue. In her eight hands she is holding an image of the Dhyāni-Buddha Amitābha (a fact clearly indicating her connection with the cycle of deities emanated from this Dhyāni-Buddha; the Bodhisattva Avalokiteśvara is often represented with the goddess), the bow and arrow, the quadruple thunderbolt, the lasso and a vase. One hand is making the sign of charity, another that of fearlessness.
+
+The class of Ḍākiṇīs is represented in this collection by the ḍākiṇī Na-ro mkha-spyod-ma, the patroness of the famous monastery of Sa-skya.
+
+On painting Nr. 25 (26 1/4 x 18), she is represented standing on two prostrate human bodies. Her color is bright red. She wears the crown of human skulls and the garland. She is holding the gri-gug knife, the magic sceptre and the cup made of a human skull. She is seen surrounded by Avalokiteśvara, Vajrapāṇi with his śakti, the green Tārā, Mahākāla in the form of a Brahman (Tib. mGon-po bram-ze'i gzugs-čan), the Lord of the Tent (Tib. Gur-gyi mgon-po), and Śmaśānapati (Tib. Dur-khrod bdag-po); these two spirits always appear in the form of two skeletons and belong to the following of Yama. They are usually represented in the religious dances performed by lamas.
+
+---
+
+[Number 26. Padmasambhava.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-015.jpeg)
+
+# Padmasambhava.
 
 ...
