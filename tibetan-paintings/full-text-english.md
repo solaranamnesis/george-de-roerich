@@ -1288,4 +1288,64 @@ Grünwedel, A. --- _Altbuddhistische Kultstätten in Chinesisch-Turkistan_ (Kön
 
 Grünwedel, A. --- _Buddhist Art in India._ Transl. by A. C. Gibson, London, 1901.
 
-...
+Hackin, J. --- _Guide-Catalogue du Musée Guimet. Les collections bouddhiques._ Paris and Bruxelles, 1923.
+
+Hackin, J. --- _L'Art Tibétain._ Paris, 1911.
+
+Hackin, J. --- _Les scènes figurées de la vie du Bouddha dans l'iconographie tibétaine_ (Mémoires concernant l'Asie Orientale, Vol. 2). Paris, 1916.
+
+Hackin, J. --- _Documents tibétains de la mission Bacot_ (Bulletin archéologique du Musée Guimet, fasc. 2), Paris, 1921.
+
+Huth, G. --- _Geschichte des Buddhismus in der Mongolei._ Text. Strassburg, 1892. Translation. Strassburg, 1896.
+
+Kern, H. --- _Manual of Indian Buddhism_ (Grundriss der Indo-arischen Philologie und Altertumskunde). Strassburg, 1896.
+
+Kern, H. --- _Saddharma-Puṇḍarīka_ (Sacred books of the East, Vol. 21) Oxford, 1909.
+
+Laufer, B. --- _Dokumente der indischen Kunst, erstes Heft, Malerei._ Das Citralakṣaṇa, nach dem tibetischen Tanjur herausgegeben und übersetzt. Leipzig, 1913.
+
+Laufer, B. --- _Der Roman einer Tibetischen Königin._ Leipzig, 1911.
+
+Laufer, B. --- _Skizze der Mongolischen Litteratur_ (Extrait de la _Revue Orientale_), 1907.
+
+Laufer, B. --- _Chinese Clay Figures._ Part 1. Prolegomena on the History of Defensive Armour (Field Museum of Natural History, Anthropological Series, vol. 13, No. 2). Chicago, 1914.
+
+La Vallée Poussin, L. de --- _Bouddhisme, Etudes et Matériaux_, 1898.
+
+Lévi, S. --- _Le Nepal. Etude historique d'un royaume hindou_ (Annales du Musée Guimet, Bibliothèque d'études, Vol. 17-19). Vol 1. Paris, 1905; Vol. 2. Paris, 1905; Vol. 3. Paris, 1908.
+
+Lévi, S. and Chavannes, Ed. --- _Les seize arhats protecteurs de la Loi_ (J. As., 1916).
+
+Le Coq, A. von --- _Die Buddhistische spätantike in Mittelasien, Erster Teil. Die Plastik_ (Ergebnisse der Kgl. Preussischen Turfan Expeditionen). Berlin, 1922.
+
+Manen, Johan van --- _Contribution to the Bibliography of Tibet_ (Journal of the Asiatic Society of Bengal, New series), vol. 18, 1922, N. 8.
+
+Marshall, Sir John --- _A guide to Sanchi._ Calcutta, 1918.
+
+Marshall, Sir John --- _A guide to Taxila._ Calcutta, 1918.
+
+Mitra, Rājendralāla --- _The Skrt. Buddhist Literature of Nepal._ Calcutta, 1882.
+
+Oldenburg, S. d' --- _Sbornik izobrazeniï 300 burkhanov_ (Bibl. Buddhica, 5). St. Petersburg, 1903.
+
+Pelliot, P. --- _Les grottes de Touen-houang_, vol. 1-6. Paris, 1920-1924.
+
+Pelliot, P. --- _La Mission Pelliot_ (Bulletin archéologique du Musée Guimet, fasc. 2). Paris and Bruxelles, 1921.
+
+Pelliot, P. --- _Le cycle sexagénaire dans la chronologie tibétaine_ (J. As. 1913).
+
+Pelliot, P. --- _Quelques transcriptions chinoises de noms tibétains_ (T'oung-Pao, 1915), pp. 18-20.
+
+Rapson, E. J. --- _The Cambridge History of India._ Vol. 1, Ancient India. Cambridge, 1922.
+
+Rockhill, W. W. --- _The life of the Buddha._ London, 1907.
+
+Roerich, N. C. --- _Ikonnyï Terem, Sobranie Sočineniï._ Moscow, 1914. pp. 27-40.
+
+Schulemann, G. --- _Die Geschichte der Dalaïlamas._ Heidelberg, 1913.
+
+Toussaint, G.-Ch. --- _Padma thaṅ-yig_ (Ch. 1 and 12-22 are translated in the Bulletin de l'Ecole française d'Extrême-Orient, vol. 20, p. 13-56; ch. 2-11 are translated in the J. As., 1923).
+
+Visser, M. W. de --- _Die Pfauenkönigin (K'ung-tsioh ming-wang, Kujaku myō-ō) in China und Japan_ (Festschrift für Friedrich Hirth). Berlin, 1920.
+
+---
