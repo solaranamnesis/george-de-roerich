@@ -34,7 +34,7 @@
 
 # [Rgyal-ba Tsoṅ-kha-pa.](#rgyal-ba-tsoṅ-kha-pa-1)
 
-# [Bibliography.]()
+# [Bibliography.](#bibliography-1)
 
 ---
 
