@@ -114,9 +114,9 @@ It is through the influence of these two princesses that the king accepted Buddh
 
 After the death of king Sroṅ-btsan sgam-po little progress was made by the new religion, and only with the advent of king Khri-sroṅ lde (lde'u)-btsan (755-797 CE), the spread of Buddhism gained a new impulse. This king, besides being a conqueror, was a great patron of the new religion, and invited to Tibet the great Śantarakṣita of Nālanda and the Buddhist monk Kamalaśīla. This last one became famous because of his religious controversy with the Ho-śang Mahāyāna, a Chinese monk regarded in China as an incarnation of Maitreya, the future Buddha.
 
-The Buddhism that reached Tibet was already strongly imbued with śivaïtic influences and other beliefs in magical practices, which were regarded with such an abborrence by early Buddhists. Professor de la Vallée Poussin in the learned introduction to his valuable "Etudes et Matériaux"* has already indicated the existence of a scientific Buddhism, a Buddhism of a comparatively small number of learned doctors, and of a popular Buddhism which introduced into the system a number of popular beliefs. The pandit Śāntarakṣita advised the king to invite from India the great tantric teacher Padmasambhava of Oḍḍiyāna.
+The Buddhism that reached Tibet was already strongly imbued with śivaïtic influences and other beliefs in magical practices, which were regarded with such an abborrence by early Buddhists. Professor de la Vallée Poussin in the learned introduction to his valuable "Études et Matériaux"* has already indicated the existence of a scientific Buddhism, a Buddhism of a comparatively small number of learned doctors, and of a popular Buddhism which introduced into the system a number of popular beliefs. The pandit Śāntarakṣita advised the king to invite from India the great tantric teacher Padmasambhava of Oḍḍiyāna.
 
-*) Prof. de la Vallée Poussin, Bouddhisme, Etudes et Matériaux, p. 33 and 37.
+*) Prof. de la Vallée Poussin, Bouddhisme, Études et Matériaux, p. 33 and 37.
 
 Padmasambhava was an adopted son of king Indrabhūti of Oḍḍiyāna. In the Padma Thaṅ-yig,* a bulky work relating the legendary life of Padmasambhava, it is told how the future teacher was found by the king and his minister sitting on a lotus flower in the middle of a lake called Vimalaprabhā, how he married and left the palace, how he led an austere life in a cemetery called the "Cool grove" (Tib. bSil-ba tshal-gyi dur-khrod), and how he became known by his many miracles. The second part of the work contains an account of his mission to the "Land of the Snows."
 
@@ -232,7 +232,7 @@ The Ethnographical Museum of Berlin, the Field Natural History Museum in Chicago
 
 Only when all the extant material will be edited and a number of Tibetan iconographical texts studied and commented on can we hope to produce a history of Tibetan art.
 
-What are the sources of our knowledge of Buddhist iconography? Besides the already mentioned Śilpaśāstras of India, native Tibetan treatises on iconography, and iconographical manuals edited during the Ming period, we possess a number of Sādhanas or conjurations, which sometimes contain a detailed description of the conjured deity. A number of such Sādhanas were brilliantly studied by Professor Alfred Foucher in his "Etude sur l'Iconographie bouddhique," which, although consecrated to the Nepalese miniatures, can hardly be overlooked by students of Tibetan iconography. The Sādhanas are supplemented by prayers, which sometimes give descriptions of the implored deities.
+What are the sources of our knowledge of Buddhist iconography? Besides the already mentioned Śilpaśāstras of India, native Tibetan treatises on iconography, and iconographical manuals edited during the Ming period, we possess a number of Sādhanas or conjurations, which sometimes contain a detailed description of the conjured deity. A number of such Sādhanas were brilliantly studied by Professor Alfred Foucher in his "Étude sur l'Iconographie bouddhique," which, although consecrated to the Nepalese miniatures, can hardly be overlooked by students of Tibetan iconography. The Sādhanas are supplemented by prayers, which sometimes give descriptions of the implored deities.
 
 With the help of these sources we are able to find our way in the extreme complexity of types which characterize the pantheon of Northern Buddhism. At first sight it seems hopeless to be able to distinguish and classify this host of many-armed and many-headed divine beings, armed with a whole arsenal of warlike attributes, these numerous figures of saintly lamas, abbots of monasteries, who often appear on paintings side by side with their previous reincarnations, and the many religious symbols, all of which have a special meaning. But step by step we gain an insight into the subject, learn to distinguish different forms of deities, and comprehend the still obscure mystical connections which exist between different forms and are expressed in the mystical rounds, or maṇḍalas.
 
@@ -852,7 +852,7 @@ Painting Nr. 19 (Pl. 13) (27 3/4 x 17 1/2).
  
 The painting represents the Siṃhanāda Lokeśvara (Tib. Spyan-ras-gzigs seṅ-ge-sgra). The artist has faithfully reproduced the Indian prototype, whose śivaïstic character was already mentioned by Mr. James Burgess and Prof. Grünwedel.*
 
-*) Cf. the sculpture in the Calcutta Museum, reproduced in the Etude sur l'Iconographie bouddhique of Prof. Foucher, fasc. 2, fig. 2.
+*) Cf. the sculpture in the Calcutta Museum, reproduced in the Étude sur l'Iconographie bouddhique of Prof. Foucher, fasc. 2, fig. 2.
 
 [Number 19. Siṃhanāda-Lokeśvara.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-013.jpeg)
 
@@ -976,7 +976,7 @@ Let us now consider the deities forming the parivāra of the goddess:
 
 *) Prof. S. Lévi, Le Nepal, vol. 2, p. 295.
 
-It is difficult to distinguish the goddesses, for they often change their color and multiply their hands and attributes, a fact already noticed by Prof. Foucher in his Etude sur l'Iconographie Bouddhique, part 2, p. 100. Their usual order is as follows:
+It is difficult to distinguish the goddesses, for they often change their color and multiply their hands and attributes, a fact already noticed by Prof. Foucher in his Étude sur l'Iconographie Bouddhique, part 2, p. 100. Their usual order is as follows:
 
 Mahāpratisarā, protects against sin, illness, and other dangers.
 
@@ -996,7 +996,7 @@ It is difficult to say what is the order on our painting, but it seems that the 
 
 *) P. 167.
 
-*) Etude, fasc. 2, p. 100.
+*) Étude, fasc. 2, p. 100.
 
 5\. Mahā(rakṣā)mantrānusāriṇī (Tib. gSaṅ-sṅags čhen-po rjes-su 'dsin-mo; gSan-sṅags chne-mo). The color of the goddess is green. The heads are successively white, green, and red. She wears the diadem and is seated cross-legged on a lotus throne. In her six hands she is holding the bow and arrow, the lasso, the banner, the thunderbolt and the bell. Notice that the first pair of hands, holding the vajra and the bell, is in the attitude of Vajrasattva. Professor Foucher mentions a red form of the goddess.*
 
@@ -1042,7 +1042,7 @@ On our image she is seen dancing on the body of the demon Rāhu. Her body is red
 
 15\. Vasudhārā (Tib. Lha-mo Nor-rgyun-ma). She is the goddess of abundance and the śakti of Jambhala-Kuvera. On our painting she is represented as having six hands which hold the fruit, the jewel, the book, the vase and an ear of corn. Her color is yellow. She is seated in the royal fashion, one hand making the sign of fearlessness.*
 
-*) A. Foucher, Etude, p. 84.
+*) A. Foucher, Étude, p. 84.
 
 To end this chapter on feminine deities of the Buddhist Pantheon represented in the collection, we shall mention the goddess Uṣṇīṣavijayā (Tib. gTsug-tor rnam-par rgyal-ma). An image of the goddess can be seen on painting Nr. 3 of this collection. The cult of this goddess is extremely popular. Usually she is seen seated cross-legged on a lotus throne. Her color is white, her three heads are successively yellow, white and blue. In her eight hands she is holding an image of the Dhyāni-Buddha Amitābha (a fact clearly indicating her connection with the cycle of deities emanated from this Dhyāni-Buddha; the Bodhisattva Avalokiteśvara is often represented with the goddess), the bow and arrow, the quadruple thunderbolt, the lasso and a vase. One hand is making the sign of charity, another that of fearlessness.
 
@@ -1272,7 +1272,7 @@ Das, Sarat-Chandra --- _Indian Pandits in Tibet_ (Journal of the Buddhist Text S
 
 Foucher, A. --- _L'art gréco-bouddhique du Gandhāra_. Paris, 1905-1923.
 
-Foucher, A. --- _Etude sur l'iconographie bouddhique de l'Inde d'après des documents nouveaux_ (Bibliothèque de l'Ecole des Hautes-Etudes, Sciences religieuses), 13th volume, 1st part. Paris, 1900. 2nd part. Paris, 1905.
+Foucher, A. --- _Étude sur l'iconographie bouddhique de l'Inde d'après des documents nouveaux_ (Bibliothèque de l'Ecole des Hautes-Études, Sciences religieuses), 13th volume, 1st part. Paris, 1900. 2nd part. Paris, 1905.
 
 Foucher, A. --- _The Beginnings of Buddhist Art_. Paris, 1918.
 
@@ -1310,9 +1310,9 @@ Laufer, B. --- _Skizze der Mongolischen Litteratur_ (Extrait de la _Revue Orient
 
 Laufer, B. --- _Chinese Clay Figures._ Part 1. Prolegomena on the History of Defensive Armour (Field Museum of Natural History, Anthropological Series, vol. 13, No. 2). Chicago, 1914.
 
-La Vallée Poussin, L. de --- _Bouddhisme, Etudes et Matériaux_, 1898.
+La Vallée Poussin, L. de --- _Bouddhisme, Études et Matériaux_, 1898.
 
-Lévi, S. --- _Le Nepal. Etude historique d'un royaume hindou_ (Annales du Musée Guimet, Bibliothèque d'études, Vol. 17-19). Vol 1. Paris, 1905; Vol. 2. Paris, 1905; Vol. 3. Paris, 1908.
+Lévi, S. --- _Le Nepal. Étude historique d'un royaume hindou_ (Annales du Musée Guimet, Bibliothèque d'études, Vol. 17-19). Vol 1. Paris, 1905; Vol. 2. Paris, 1905; Vol. 3. Paris, 1908.
 
 Lévi, S. and Chavannes, Ed. --- _Les seize arhats protecteurs de la Loi_ (J. As., 1916).
 
