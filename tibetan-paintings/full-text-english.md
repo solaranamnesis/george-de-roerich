@@ -32,6 +32,8 @@
 
 # [Padmasambhava.](#padmasambhava-1)
 
+# [Rgyal-ba Tsoṅ-kha-pa.]()
+
 ...
 
 ---
@@ -1153,5 +1155,77 @@ The teacher Padmasambhava is seated on a lotus throne inside the courtyard. He h
 10\. Padmasambhava. The teacher is holding the thunderbolt, the cup and the magic sceptre.
 
 In front of the four gates of the outside wall are seen the four king-guardians. Outside the wall we see:
+
+11\. Yi-dam Guru drag-dmar. The deity is seen dancing on two crouching human bodies, brandishing the thunderbolt and a crab. The color of the body is red. The deity wears the tiger skin, and the garland of human skulls.
+
+12\. mKa-'gro seṅ-ge gdoṅ-čan. The ḍākiṇī is dancing on a human body. She has the head of a lion and is holding the thunderbolt, the cup and the magic sceptre. Her body is blue.
+
+13\. mGon-po ma-liṅ nag-po. The deity is seen brandishing a spear and holding the cup. The color of the body is blue. The deity wears the garland of heads, and the tiger skin round her waist.
+
+14\. Sam-yas rtshe dmar-po. The deity is riding a horse and spearing a human body. In the left hand the deity has a cup. The color of the body is red.
+
+Round the palace are seen flying nymphs. Radiant rainbows emerge from the palace, forming on their end clouds on which are enthroned rJe-btsün Mi-la, rJe-btsün Mar-pa and a Tantric form of the Bodhisattva Samantabhadra with his śakti.
+
+On the lower part of the painting, is represented the Rākṣasī world.
+
+The king of the rākṣasīs (Tib. Srin-po'i rgyal-po) is seen seated on a throne in front of a building whose roofs are crowned with human skulls.
+
+The king is preaching to a number of rākṣasīs seated in front of him; some of whom are offering him baskets and cups.
+
+Notice the rākṣasī devouring a human body; another is seen drinking human blood out of a cup, amidst mountain scenery.
+
+Curious are the strings, resembling the Tibetan kha-btags or ceremonial scarfs, on which human souls are crossing the stream towards the paradise of Padmasambhava. Some of these souls have already crossed and are seen praying to the teacher. Others are still in the Rākṣasī world, waiting for their turn. The strings are held by woman-figures dressed in the costume of nymphs.
+
+On the rocky side of the island, on which the paradise is situated, are seen caves with meditating hermits.
+
+The painting is of a very fine execution, both in design and colors. It is the work of a Lhasa artist. Notice the peculiar way of painting the clouds, and the slight coloration of the background, characteristics which are always found on paintings produced by Lhasa artists.
+
+Painting Nr. 29 (24 1/2 x 16 1/4).
+
+This painting represents the same subject as the previous one. The composition is slightly different. Above the palace of Padmasambhava is seen Śākyamuni assisted by Dīpaṅkara, the previous Buddha, and Maitreya, the future Buddha.
+
+The painting is slightly damaged. 
+
+---
+
+# Rgyal-ba Tsoṅ-kha-pa.
+
+The following series of paintings (Nrs. 30-36) represents the rGyal-ba Tsoṅ-kha-pa in various attitudes. This series of paintings is the work of a modern artist belonging to the Shigatse school. All the seven paintings come from the Rongphug Monastery, recently visited by the Mount Everest Expedition.
+
+Like Padmasambhava, rGyal-ba Tsoṅ-kha-pa has a firmly established type in Tibetan iconography. The great Reformer can always be recognized by his pronounced nose, and we are told that this was a characteristic feature of Tsoṅ-kha-pa's face. His opponents called him the "Amdo-man with the big nose" (Tib. A-mdo sna-bo čhe). It is the only instance of portrait art that can be recalled in the history of Tibetan art.
+
+The images of rGyal-ba Tsoṅ-kha-pa are exceedingly numerous. He is one of the "four suns" of Northern Buddhism (Śākyamuni, Nāgārjuna, Atīśa, and Tsoṅ-kha-pa) and is often represented in a triad with Nāgārjuna and Atīśa. Frequently the Reformer is seen together with his two principal pupils, rJe-tshab-rje and mKhas-grub-rje. On images he wears the yellow cap (šva-ser) of his sect and a red brown monastic robe, often covered with golden designs (sometimes the color of the robe is yellow). Two lotus flowers, usually seen behind him, support the sword and the book.
+
+Painting Nr. 30 (26 3/4 x 19).
+
+rGyal-ba Tsoṅ-kha-pa is seen seated on a lotus throne. His right hand is making the sign of attestation and is holding the stalks of the two lotus flowers supporting the sword and the book. The left hand is holding the alms bowl.
+
+Round the central figure we see scenes from the youth of Tsoṅ-kha-pa. In one of these scenes the parents of Tsoṅ-kha-pa are seen bringing their son before a lama, probably lama Rol-pa'i rdo-rje, who accepted Tsoṅ-kha-pa as pupil and gave him the name of Kun-dga sniṅ-po.
+
+Notice an image of Yamāntaka, the Yi-dam of the dGe-lugs-pa sect, and the image of Buddha surrounded by sixteen great Arhats.
+
+Painting Nr. 31 (26 3/4 x 19).
+
+rGyal-ba Tsoṅ-kha-pa is seen seated on a lotus throne in front of a pond out of which emerges an alms bowl on a lotus flower. With his right hand he makes the sign of argumentation, with his left one he is holding a book, wrapped in a piece of cloth according to the Tibetan custom.
+
+Behind him are seen the two lotus flowers supporting the sword and the book. The central figure is surrounded by numerous preaching scenes which serve to illustrate the legend of Tsoṅ-kha-pa.
+
+Painting Nr. 32 (26 3/4 x 19).
+
+rGyal-ba Tsoṅ-kha-pa is seen in the middle. With his right hand he is making the sign of fearlessness and is holding the stalks of the two lotus flowers with the sword and the book. His left hand is holding a book. Round the central figure are represented numerous monastic scenes.
+
+Painting Nr. 33 (26 3/4 x 19).
+
+Tsoṅ-kha-pa is seen in the middle, seated on a lotus throne. His right hand makes the sign of charity and is holding the stalk of the lotus flower supporting the sword. His left hand is holding an amṛta vessel and the stalk of the lotus flower supporting the book.
+
+Round the central figure are numerous preaching scenes. Notice in the left corner the image of the eleven-faced Avalokiteśvara, which is adored by four monks.
+
+rGyal-ba Tsoṅ-kha-pa is seen in the attitude of Vajrasattva. He is holding in front of his chest the thunderbolt and the bell. Behind him are the usual lotus flowers with the sword and the book.
+
+Round the central figure, numerous scenes probably taken from the Life of Tsoṅ-kha-pa. Notice the image of Yamāntaka, assisted by the Bodhisattva Mañjuśrī and Akṣobhya. Below the Yi-dam are seen different forms of Yama, god of death (from left to right: Čhos-rgyal phyi-sgrub, Čhos-rgyal naṅ-sgrub, and Čhos-rgyal gsaṅ-sgrub).
+
+Painting Nr. 35 (Pl. 17) (26 3/4 x 19).
+
+Represents rGyal-ba Tsoṅ-kha-pa in the attitude of a Tantric lama.
 
 ...
