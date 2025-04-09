@@ -1004,7 +1004,7 @@ It is difficult to say what is the order on our painting, but it seems that the 
 
 6\. Mahāpratisarā (Tib. So-sor 'braṅ-ma).* The goddess has four heads and eight arms. She is seated on a lotus throne. Her color is pure white, and her heads are successively yellow, white, red, and green.* The goddess wears the diadem. In her hands she is holding the flaming sword, the bow and arrow, the thunderbolt, the axe, the trident; the two hands joined at the chest are holding the wheel and the lasso.
 
-*) In his Mythologie des Buddhismus in Tibet und der Mongolei, p. 148, Prof. Grünwedel gives the Tibetan name as corresponding lo the Skrt. Āryajāñgulītāra, which designates an assistant of the green Tara.
+*) In his Mythologie des Buddhismus in Tibet und der Mongolei, p. 148, Prof. Grünwedel gives the Tibetan name as corresponding to the Skrt. Āryajāñgulītāra, which designates an assistant of the green Tārā.
 
 *) Rāj. Mitra, ibid., p. 169.
 
