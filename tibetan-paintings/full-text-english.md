@@ -34,7 +34,7 @@
 
 # [Rgyal-ba Tsoṅ-kha-pa.](#rgyal-ba-tsoṅ-kha-pa-1)
 
-...
+# [Bibliography.]()
 
 ---
 
@@ -1227,5 +1227,35 @@ Round the central figure, numerous scenes probably taken from the Life of Tsoṅ
 Painting Nr. 35 (Pl. 17) (26 3/4 x 19).
 
 Represents rGyal-ba Tsoṅ-kha-pa in the attitude of a Tantric lama.
+
+In his hands crossed at the chest, he is holding the bell and tha drum Behind him are seen the two lotus flowers supporting the sword and the book. In front of the lotus throne is seen the Wheel of the Law.
+
+[Number 35. rGyal-ba Tsoṅ-kha-pa.](https://cdn.solaranamnesis.com/GeorgeRoerich/plate-017.jpeg)
+
+Round the central figure, numerous images representing the thousand Tathāgatas, the Bodhisattva Mañjuśrī, Bhaiṣajyaguru, Amitāyus and Maitreya. Above the central figure is seen Yamāntaka. In the right corner is seen Tsoṅ-kha-pa preaching to a number of pupils. Notice the golden string that connects the Reformer and his pupils with the Bodhisattva Mañjuśrī, who is seen surrounded by the eight Bodhisattvas and the ten Tathāgatas.
+
+Painting Nr. 36 (26 3/4 x 19).
+
+rGyal-ba Tsoṅ-kha-pa is seen in the middle. With his right hand he is making the sign of argumentation and is holding the stalk of the lotus flower supporting the sword. The left hand is holding an alms bowl.
+
+Round the central figure are drawn numerous scenes from the Life of Tsoṅ-kha-pa, images of the thousand Tathāgatas, Vajrapāṇi, and Mañjuśrī.
+
+In the lower corner, to the left, the Dharmarāja Sroṅ-btsan sgam-po, surrounded by courtiers wearing fur caps and overcoats.
+
+Painting Nr. 37 (18 1/2 x 12 1/2).
+
+This painting represents the lama 'Dul-'dsin Graga-pa rgyal-mtshan (Vinyadhara Kīrtidhvaja). He was the pupil of rGyal-ba Tsoṅ-kha-pa, and was famous for his scholarly activity throughout Tibet.*
+
+On this painting he is seen seated on a throne richly covered with embroidered cloth. He wears the ordinary lama dress. In his hands he is holding the thunderbolt and the bell.
+
+In front of the throne is seen a table, on which ate placed the drum, the vessel, the alms bowl, and a vase with a lotus flower.
+
+The painting is the work of a Derge or Khams artist.
+
+*) Huth, Geschichte des Buddhismus in der Mongolei. Text, p. 118; Translation, p. 185.
+
+---
+
+# Bibliography.
 
 ...
