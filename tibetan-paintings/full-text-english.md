@@ -1258,4 +1258,34 @@ The painting is the work of a Derge or Khams artist.
 
 # Bibliography.
 
+Bacot, J. --- _A propos de documents tibétains_ (Bulletin archéologique du Musée Guimet, fasc. 2). Paris and Bruxelles, 1921.
+
+Bacot, J. --- _La Décoration Tibétaine._ Paris 1923.
+
+Bendall, C. and Rouse, W. H. D. --- _Śikṣāsamuccaya. Translated from Sanskrit._ Indian Texts series. London, 1922.
+
+Bendall, C. --- _Śikṣāsamuccaya_ (Bibliotheca Buddhica, 1), St. Petersburg, 1897-1902.
+
+Blonay, G. de --- _Matériaux pour servir à l'histoire de la déesse bouddhique Tārā_. Paris 1895.
+
+Das, Sarat-Chandra --- _Indian Pandits in Tibet_ (Journal of the Buddhist Text Society of India, 1, 1893, pp. 7-31).
+
+Foucher, A. --- _L'art gréco-bouddhique du Gandhāra_. Paris, 1905-1923.
+
+Foucher, A. --- _Etude sur l'iconographie bouddhique de l'Inde d'après des documents nouveaux_ (Bibliothèque de l'Ecole des Hautes-Etudes, Sciences religieuses), 13th volume, 1st part. Paris, 1900. 2nd part. Paris, 1905.
+
+Foucher, A. --- _The Beginnings of Buddhist Art_. Paris, 1918.
+
+Giles, H.-A. --- _The travel of Fa-hsien._ Cambridge, 1923.
+
+Grünwedel, A. --- _Mythologie des Buddhismus in Tibet und der Mongolei._ Leipzig, 1900.
+
+Grünwedel, A. --- _Die Geschichten der vierundachtzig grossen Zauberer_ (Baessler Archiv, 5, 4/5); Index (Jörgensen), Bd. 6, Heft 3.
+
+Grünwedel, A. --- _Obzor sobraniya predmetov lamaïskago kulta E. E. Uchtomskago_ (Bibl. Buddh. 6, fasc. 1 and 2). St. Petersburg, 1905.
+
+Grünwedel, A. --- _Altbuddhistische Kultstätten in Chinesisch-Turkistan_ (Königlich-Preussische Turfan-Expeditionem). Berlin, 1912.
+
+Grünwedel, A. --- _Buddhist Art in India._ Transl. by A. C. Gibson, London, 1901.
+
 ...
