@@ -32,7 +32,7 @@
 
 # [Padmasambhava.](#padmasambhava-1)
 
-# [Rgyal-ba Tsoṅ-kha-pa.]()
+# [Rgyal-ba Tsoṅ-kha-pa.](#rgyal-ba-tsoṅ-kha-pa-1)
 
 ...
 
