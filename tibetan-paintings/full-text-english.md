@@ -1246,13 +1246,13 @@ Painting Nr. 37 (18 1/2 x 12 1/2).
 
 This painting represents the lama 'Dul-'dsin Graga-pa rgyal-mtshan (Vinyadhara Kīrtidhvaja). He was the pupil of rGyal-ba Tsoṅ-kha-pa, and was famous for his scholarly activity throughout Tibet.*
 
+*) Huth, Geschichte des Buddhismus in der Mongolei. Text, p. 118; Translation, p. 185.
+
 On this painting he is seen seated on a throne richly covered with embroidered cloth. He wears the ordinary lama dress. In his hands he is holding the thunderbolt and the bell.
 
 In front of the throne is seen a table, on which ate placed the drum, the vessel, the alms bowl, and a vase with a lotus flower.
 
 The painting is the work of a Derge or Khams artist.
-
-*) Huth, Geschichte des Buddhismus in der Mongolei. Text, p. 118; Translation, p. 185.
 
 ---
 
