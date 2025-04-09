@@ -1012,7 +1012,7 @@ It is difficult to say what is the order on our painting, but it seems that the 
 
 *) A. Foucher, ibid., p. 99.
 
-8\. Mahāmāyūrī (Tib. rMa-bya čhen-mo). The goddess is seated cross-legged on a lotus throne. Her color is red. Her four heads are successively white, red, green and blue. She has twelve hands which are holding the thunderbolt, the arrow, the crescent, the peacock's feather, the book, the lotus and the lasso. Two hands are folded on the lap, holding a bowl containing the head of a Buddha. Another pair is joined, making the sign of instruction. Prof Foucher* mentions a yellow and green form of the goddess.*
+8\. Mahāmāyūrī (Tib. rMa-bya čhen-mo). The goddess is seated cross-legged on a lotus throne. Her color is red. Her four heads are successively white, red, green and blue. She has twelve hands which are holding the thunderbolt, the arrow, the crescent, the peacock's feather, the book, the lotus and the lasso. Two hands are folded on the lap, holding a bowl containing the head of a Buddha. Another pair is joined, making the sign of instruction. Prof. Foucher* mentions a yellow and green form of the goddess.*
 
 *) Foucher, ibid., p. 100.
 
