@@ -946,7 +946,7 @@ This collection possesses a remarkable painting (Nr. 24) (29 x 19 1/2) of the go
 
 The prayer translated here is said to have been composed by rGyal-ba Tsoṅ kha-pa, who is reputed as having composed numerous prayers and psalms in honor of the different deities.
 
-"To the seven millions of Jinas, to the assembly of arhats, to all the rṣis learned in mantras, to Brahma and Indra, to Mahādeva and Nārāyaṇa, to Legs-ldan nag-po gduṅ-bdun, to the ten Sugatas, and to all the worshipful ones, I bow in salutation. From the crown of the head of the Sugata emerged the word of incantation by which we sing praise to the holy gDugs-dkar, commanding a large retinue"
+"To the seven millions of Jinas, to the assembly of arhats, to all the rṣis learned in mantras, to Brahma and Indra, to Mahādeva and Nārāyaṇa, to Legs-ldan nag-po gduṅ-bdun, to the ten Sugatas, and to all the worshipful ones, I bow in salutation. From the crown of the head of the Sugata emerged the word of incantation by which we sing praise to the holy gDugs-dkar, commanding a large retinue."
 
 "Her, who is well-born from the most excellent uṣṇīṣa of the Lord of Śākyas, dwelling in the holy world of gods, who is invincible by the knowledge of demons, who expels all the enemies, we call the Uṣṇīṣa-Sitātapatrā, the unconquerable by others."
 
