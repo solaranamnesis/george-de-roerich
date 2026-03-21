@@ -1203,7 +1203,7 @@ Visser, M. W. de --- _Die Pfauenkönigin (K'ung-tsioh ming-wang, Kujaku myō-ō)
 [^3]: A. Foucher, ibid. pp. 61-110.
 [^4]: A. Foucher, ibid. pp. 147-184.
 [^5]: E. J. Rapson, Cambridge History of India, Cambridge, 1922, p. 199.
-[^6]: Cf. painting in the Collection Jacques Bacot in the Musée Guimet, described and edited by M. J. Hackin in his recent Guide-Catalogue du Musée Guimet, Paris, 1923, pl. 19; a typical Tibetan mĕhod-rten or stūpa is seen behind the figure of the Bodhisattva. In the Lalita-Vistara (ch. 15) we find the mention of a stūpa called "Chandakanivartana" that has been erected on the place where Chandaka left the future Buddha. The text calls this place Anuvaineya, and adds that to reach this place one had to cross the territories of the Śākyas, Kroḍyas, Mallas, and Maineyas.
+[^6]: Cf. painting in the Collection Jacques Bacot in the Musée Guimet, described and edited by M. J. Hackin in his recent Guide-Catalogue du Musée Guimet, Paris, 1923, Pl. 19; a typical Tibetan mĕhod-rten or stūpa is seen behind the figure of the Bodhisattva. In the Lalita-Vistara (ch. 15) we find the mention of a stūpa called "Chandakanivartana" that has been erected on the place where Chandaka left the future Buddha. The text calls this place Anuvaineya, and adds that to reach this place one had to cross the territories of the Śākyas, Kroḍyas, Mallas, and Maineyas.
 [^7]: Burnouf, Intr. a l'hist. du Bouddhisme indien, p. 34.
 [^8]: A. Foucher, L'Art Greco-Bouddhique du Gandhāra, Vol. 2nd, fasc. 2, p. 744. Paris, 1923.
 [^9]: Mahāparinibhāna-sutta, 6, 1.
@@ -1214,8 +1214,12 @@ Visser, M. W. de --- _Die Pfauenkönigin (K'ung-tsioh ming-wang, Kujaku myō-ō)
 [^14]: We believe these languages to be artificial languages.
 [^15]: G. Schulemann, Die Geschichte der Dalailamas, p. 51.
 [^16]: Prof. Pelliot, Course delivered at the Collège de France, 1922-1923; B. Laufer, Skizze der Mongolischen Litteratur, p. 185.
-[^17]: All students of Tibetan history will do well to study the illuminating article of Prof. Pelliot, Le cycle sexagénaire dans la chronologie tibétaine (J. As. 1913), before using the works published in European languages on Tibetan history; p. 667, n. 3. We hope to bring out in the nearest future a volume on the Life of Tsoṅ-kha-pa, being a translation of the biographical portions of the rGyal-ba Tsoṅ-kha-pa'i bka-'bum.
-[^18]: G. Schulemann, ibid., p. 82, says that rgyal-ba Tsoṅ-kra-pa allowed in the monasteries the study of dKar-rtsis (Weisse Wissenschaften), and forbade the practice of Nag-rtsis (Schwarze Magie). DKar-rtsis does not mean here "white magic," and should be read as sKar-rtsis, which usually denotes astronomy and astrology according to Indian tradition. Nag-rtsis is a contracted form for rGya-nag-gi skar-rtsis, or "Chinese Astronomy." A number of Tibetan astronomical and astrological books have been translated from Chinese.
+[^17]: All students of Tibetan history will do well to study the illuminating article of Prof. Pelliot, Le cycle sexagénaire dans la chronologie tibétaine (J. As. 1913), before using the works published in European languages on Tibetan history; p. 667, n. 3.
+
+    We hope to bring out in the nearest future a volume on the Life of Tsoṅ-kha-pa, being a translation of the biographical portions of the rGyal-ba Tsoṅ-kha-pa'i bka-'bum.
+[^18]: G. Schulemann, ibid., p. 82, says that rgyal-ba Tsoṅ-kra-pa allowed in the monasteries the study of dKar-rtsis (Weisse Wissenschaften), and forbade the practice of Nag-rtsis (Schwarze Magie).
+
+    DKar-rtsis does not mean here "white magic," and should be read as sKar-rtsis, which usually denotes astronomy and astrology according to Indian tradition. Nag-rtsis is a contracted form for rGya-nag-gi skar-rtsis, or "Chinese Astronomy." A number of Tibetan astronomical and astrological books have been translated from Chinese.
 [^19]: Huth, Geschichte des Buddhismus in der Mongolei, vol. 2, p. 183.
 [^20]: Laufer, ibid., p. 223; Huth, ibid., p. 375.
 [^21]: Huth, ibid., p. 215.
